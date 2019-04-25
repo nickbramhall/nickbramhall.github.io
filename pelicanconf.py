@@ -79,7 +79,7 @@ SUMMARY_END_MARKER = '<!--more-->'
 # Static Paths
 
 STATIC_PATHS = [
-    'extra',  # this
+    'images', 'extra',  # this
 ]
 EXTRA_PATH_METADATA = {
     'extra/robots.txt': {'path': 'robots.txt'},
