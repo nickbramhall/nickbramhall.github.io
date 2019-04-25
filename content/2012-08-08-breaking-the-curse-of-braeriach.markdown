@@ -1,0 +1,285 @@
+Title: Breaking the Curse of Braeriach
+Date: 2012-08-08 21:01
+Modified: 2012-08-08 21:01
+Category: The Cairngorms
+Tags: backpacking, overnight, cairngorms, munro, hiking, scotland, braeriach, wildcamping
+Author: Nick Bramhall
+Slug: breaking-the-curse-of-braeriach
+
+_An overnight trip into the Western Cairngorms with a camp near the summit of the Devil’s Point_
+
+##Day 1
+
+**Date: 4th August 2012  
+Distance: 22.23km  
+Ascent: 1,678m  
+Time: 10hr 15min  
+Hills: Braeriach (Munro), Angel's Peak (Munro), Cairn Toul (Munro), Devil's Point (Munro)  
+Weather: Early bright sunshine, cloudy later with a heavy rain shower  
+Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/362)**
+
+Other than perhaps getting up to head on holiday, 4:30am on a Saturday morning isn’t a time I would normally be pleased to see. Looking outside didn’t do much to engage my motivation; Aberdeen was wreathed in a dense, Victorian fog and I could barely see the other other side of the street. However, I had somewhere to be and someone to meet so after a few last minute preparations and a pain au chocolat consumed between yawns I was on the road. 
+
+[![The Lairig Ghru](http://farm9.staticflickr.com/8427/7735110888_7b77760045_b.jpg)](http://flic.kr/p/cMwsYQ "The Lairig Ghru by Nick Bramhall, on Flickr")
+
+<!--more-->
+
+A mile out of Aberdeen, climbing up to Tyrebagger the fog was left behind and suddenly I was in a world of sunshine and optimism! The fog was dense and low lying and over the next hour or so I would continue to drop down into it only to rise up on the other side. This pattern stopped as I dropped into the valley of the Spey where the cloud was thicker and didn’t seem to be in the mood for going anywhere fast. I rolled into Aviemore behind the bin lorry and pulled up in the empty, fogbound station car park. It felt like November.
+
+Having slightly overestimated the time it would take me to get to Aviemore I now had half an hour to spare and so I took out my Kindle and read a little, occasionally watching as another sleepy looking passenger arrived at the station. Just a few minutes before the first southbound train of the day was due a taxi screeched to a halt and a flustered lady got out, soon hurrying off to the platform. A few minutes later the Sleeper rolled into the station right on time, a few folk getting off, including my co-conspirator for the weekend. Fresh from several recent trips out in the hills [Rich](https://twitter.com/FlintyRich) had travelled up overnight from London for his first taste of the Cairngorms.
+
+The plan was to get a bite of breakfast and finalise route plans over coffee and a bacon roll. However, Aviemore doesn’t seem ready to serve the needs of early hillwalkers and so it was a quick stop at Tesco and then out to park at Whitewell where our sandwiches were complemented by a healthy intake of midges. A quick look at the map confirmed our route choice, taking into account the less than inspiring weather forecast, particularly for Sunday. We would head up to Braeriach via the Lairig Ghru and then make our way along the peaks to the west of the Ghru before camping near the Devil’s Point. Sunday was less certain but we had a few options depending on what the weather brought our way.
+
+After final preparations (and an apple) we were off, walking through the misty forest towards the start of the Lairig Ghru. Chatting as we walked we were soon on the narrow footpath which climbs up above the chattering Allt Druidh. With the summer forest canopy dark and dense above us it was a bit of time before we noticed the blue skies and sunshine that had appeared. As the trees thinned we could see back down to the forest where the cloud still hung thick and heavy, obscuring any views of Aviemore and Strathspey.
+
+[![Blue skies in the Cairngorms](http://farm9.staticflickr.com/8447/7751134222_3aa23f51c8_b.jpg)](http://flic.kr/p/cNWAad "Blue skies in the Cairngorms by Nick Bramhall, on Flickr")
+
+[![Mist over the Rothiemurchas](http://farm9.staticflickr.com/8304/7751129586_03ce6d53c4_b.jpg)](http://flic.kr/p/cNWyMh "Mist over the Rothiemurchas by Nick Bramhall, on Flickr")
+
+[![Sron na Lairig and Braeriach](http://farm8.staticflickr.com/7130/7751159234_80c0f03058_b.jpg)](http://flic.kr/p/cNWHAs "Sron na Lairig and Braeriach by Nick Bramhall, on Flickr")
+
+Delighted with the weather and the fantastic views that were opening out we continued along, climbing up towards the Lairig Ghru. As we neared the narrow, rocky section below the old Sinclair Hut site we paused briefly to chat with a Californian who had enjoyed a brilliant night on the hills. We left the Ghru path and steadily gained height up towards Sron na Lairig the views opening out magnificently. I’ve only ever been up or down this path in clag so it was great to get views of Lurcher’s Crag and across Glen Einich to the distinctively shaped Sgoran Dubh.
+
+[![The Lairig Ghru](http://farm8.staticflickr.com/7276/7751179014_c160df0e7a_b.jpg)](http://flic.kr/p/cNWPtu "The Lairig Ghru by Nick Bramhall, on Flickr")
+
+[![Lurcher's Crag](http://farm9.staticflickr.com/8440/7751183454_fb4fa522fd_b.jpg)](http://flic.kr/p/cNWQN3 "Lurcher's Crag by Nick Bramhall, on Flickr")
+
+[![Speyside across the Lairig Ghru](http://farm9.staticflickr.com/8448/7751191520_e6c6244116_b.jpg)](http://flic.kr/p/cNWTc7 "Speyside across the Lairig Ghru by Nick Bramhall, on Flickr")
+
+[![Across Glen Einich to Sgor Gaoith](http://farm9.staticflickr.com/8284/7751208686_f5965d2e82_b.jpg)](http://flic.kr/p/cNWYi5 "Across Glen Einich to Sgor Gaoith by Nick Bramhall, on Flickr")
+
+As we headed up the views just got better and better. After the initial steep pull the terrain levelled and we paused to have a drink and take in the stunning views. Apart from the mist hanging on resolutely further down the Spey the skies were gloriously blue and summery, white clouds bubbling up here and there.
+
+[![Blue skies of Lurcher's Crag](http://farm9.staticflickr.com/8433/7751213292_d7f7fdcea1_b.jpg)](http://flic.kr/p/cNWZEu "Blue skies of Lurcher's Crag by Nick Bramhall, on Flickr")
+
+[![Sron na Lairig Ridge](http://farm8.staticflickr.com/7127/7751217850_78d26aa784_b.jpg)](http://flic.kr/p/cNX225 "Sron na Lairig Ridge by Nick Bramhall, on Flickr")
+
+[![The Lairig Ghru](http://farm9.staticflickr.com/8299/7751230518_a448d54073_b.jpg)](http://flic.kr/p/cNX5Mu "The Lairig Ghru by Nick Bramhall, on Flickr")
+
+[![The Northern Corries](http://farm8.staticflickr.com/7262/7751239260_2816a26f03_b.jpg)](http://flic.kr/p/cNX8od "The Northern Corries by Nick Bramhall, on Flickr")
+
+We continued on, crossing Sron na Lairig and then pulling up to the summit ridge. The weather had held and it looked like my third attempt at Braeriach was going to finally bring me a view! I was very excited. Getting to the cliffs far above the Garbh Coire brought with it a “wow” moment. The views suddenly opened out ahead and we were gazing across the deep glen to the towering mass of Carn an t-Sabhail (Cairn Toul) and Sgor an Lochain Uaine (the Angel’s Peak), the green lochan cradled between them.
+
+[![Glen Dee from Sron na Lairig](http://farm9.staticflickr.com/8428/7751254728_6df9ba28c8_b.jpg)](http://flic.kr/p/cNXcYU "Glen Dee from Sron na Lairig by Nick Bramhall, on Flickr")
+
+[![The Braeriach Plateau](http://farm9.staticflickr.com/8307/7751267902_9ec768fb7e_b.jpg)](http://flic.kr/p/cNXgU3 "The Braeriach Plateau by Nick Bramhall, on Flickr")
+
+[![Admiring the view](http://farm9.staticflickr.com/8287/7727316248_58566d2554_b.jpg)](http://flic.kr/p/cLQvUu "Admiring the view by Nick Bramhall, on Flickr")
+
+[![Cairn Toul and the Angel's Peak](http://farm9.staticflickr.com/8443/7751295550_66fc3cf0a3_b.jpg)](http://flic.kr/p/cNXq7J "Cairn Toul and the Angel's Peak by Nick Bramhall, on Flickr")
+
+[![Glen Dee](http://farm8.staticflickr.com/7249/7751309878_882776c555_b.jpg)](http://flic.kr/p/cNXunL "Glen Dee by Nick Bramhall, on Flickr")
+
+The air was almost completely still, the sunshine warm, and we spent a while here relaxing and taking photos. Eventually we got our legs into motion and followed the well trodden path along the edge of the cliffs and up the final gentle slopes to the summit of Braeriach, the UK’s third highest mountain. 
+
+[![Summit of Braeriach](http://farm8.staticflickr.com/7110/7751315872_d5608a699b_b.jpg)](http://flic.kr/p/cNXwa7 "Summit of Braeriach by Nick Bramhall, on Flickr")
+
+[![The Garbh Coire from Braeriach](http://farm9.staticflickr.com/8283/7751361228_525acaf2b7_b.jpg)](http://flic.kr/p/cNXKD7 "The Garbh Coire from Braeriach by Nick Bramhall, on Flickr")
+
+[![Ben MacDui from Braeriach](http://farm9.staticflickr.com/8448/7751365878_cd041c0d39_b.jpg)](http://flic.kr/p/cNXM2h "Ben MacDui from Braeriach by Nick Bramhall, on Flickr")
+
+The views along the cliffs are spectacular and we enjoyed the clear views all around. After visiting the cairn we found a pleasant spot for a late lunch, our feet almost dangling over the cliff-edge. There was a gentle breeze as we munched on some food. The summit got a little busier as a few other folk arrived.
+
+[![Summit of Braeriach](http://farm8.staticflickr.com/7259/7751370068_9c3ede2ece_b.jpg)](http://flic.kr/p/cNXNgw "Summit of Braeriach by Nick Bramhall, on Flickr")
+
+[![Cairn Toul from Braeriach](http://farm9.staticflickr.com/8284/7751374918_eac35b87f0_b.jpg)](http://flic.kr/p/cNXPH9 "Cairn Toul from Braeriach by Nick Bramhall, on Flickr")
+
+[![West from Braeriach](http://farm8.staticflickr.com/7267/7751379388_4ab3cf6956_b.jpg)](http://flic.kr/p/cNXR3d "West from Braeriach by Nick Bramhall, on Flickr")
+
+After lunch we headed west, following the cliffs as often as we could to reach the Falls of Dhe. Here the infant Dhe, already a quick flowing stream, plunges over the cliffs and into the An Garbh-choire on its way to Braemar and eventually out to the sea at Aberdeen some 70 or 80 miles away. 
+
+[![Clouds over Ben MacDui](http://farm9.staticflickr.com/8295/7751387146_190d45decf_b.jpg)](http://flic.kr/p/cNXTkY "Clouds over Ben MacDui by Nick Bramhall, on Flickr")
+
+[![Cairn Toul and Glen Dee](http://farm9.staticflickr.com/8421/7751392136_fd79f521ab_b.jpg)](http://flic.kr/p/cNXUQ1 "Cairn Toul and Glen Dee by Nick Bramhall, on Flickr")
+
+[![Towards Einich Cairn](http://farm8.staticflickr.com/7122/7751402270_fb809c4071_b.jpg)](http://flic.kr/p/cNXXQJ "Towards Einich Cairn by Nick Bramhall, on Flickr")
+
+[![The Braeraich Plateau](http://farm9.staticflickr.com/8296/7751414984_d0d3eb9b10_b.jpg)](http://flic.kr/p/cNY2BW "The Braeraich Plateau by Nick Bramhall, on Flickr")
+
+[![Above the Falls of Dee](http://farm9.staticflickr.com/8295/7751426428_ef1cc72100_b.jpg)](http://flic.kr/p/cNY62f "Above the Falls of Dee by Nick Bramhall, on Flickr")
+
+We took the opportunity to refill our bottles with deliciously fresh mountain water and then continued on, again tracking the edge of the cliffs somewhere near Einich Cairn. The views were constantly changing, especially as we got closer and closer to Sgor an Lochain Uaine, its scrambly northeast ridge revealed in perfect profile.
+
+[![Blue skies over the Braeriach Plateau](http://farm8.staticflickr.com/7275/7751429146_0c9701b597_b.jpg)](http://flic.kr/p/cNY6Q7 "Blue skies over the Braeriach Plateau by Nick Bramhall, on Flickr")
+
+[![The Garbh Coire](http://farm8.staticflickr.com/7140/7751434130_ded717cb3b_b.jpg)](http://flic.kr/p/cNY8j3 "The Garbh Coire by Nick Bramhall, on Flickr")
+
+[![Ben Macdui from Braeriach](http://farm9.staticflickr.com/8425/7728037204_a6a3c84c60_b.jpg)](http://flic.kr/p/cLUddL "Ben Macdui from Braeriach by Nick Bramhall, on Flickr")
+
+[![Cliffs of Einich Cairn](http://farm9.staticflickr.com/8437/7751461402_ed0272a3aa_b.jpg)](http://flic.kr/p/cNYgqf "Cliffs of Einich Cairn by Nick Bramhall, on Flickr")
+
+[![The Garbh Coire](http://farm9.staticflickr.com/8435/7751476060_94ea77f4cb_b.jpg)](http://flic.kr/p/cNYkLY "The Garbh Coire by Nick Bramhall, on Flickr")
+
+As we advanced, the weather began to change. Clouds, darker than earlier, were now rolling in and it looked like the forecast rain shower was on its way. We headed down to the col before the Angel’s Peak, admiring the views out west to the Central Highlands which were picked out by breaks in the cloud allowing glorious shafts of light to strike the landscape. 
+
+[![Towards the Tarf Hills](http://farm9.staticflickr.com/8294/7751483868_d619499726_b.jpg)](http://flic.kr/p/cNYo6A "Towards the Tarf Hills by Nick Bramhall, on Flickr")
+
+[![Towards The Angel's Peak &amp; Cairn Toul](http://farm8.staticflickr.com/7120/7751487652_1b8e7b0c1c_b.jpg)](http://flic.kr/p/cNYpdQ "Towards The Angel's Peak &amp; Cairn Toul by Nick Bramhall, on Flickr")
+
+[![Beinn Bhrotain and Monadh Mor](http://farm9.staticflickr.com/8157/7751510458_a4ac93e980_b.jpg)](http://flic.kr/p/cNYw13 "Beinn Bhrotain and Monadh Mor by Nick Bramhall, on Flickr")
+
+[![An-Garbh Choire](http://farm9.staticflickr.com/8429/7751514610_d54d9eb85b_b.jpg)](http://flic.kr/p/cNYxeC "An-Garbh Choire by Nick Bramhall, on Flickr")
+
+In front of us now a towering wall of black cloud had gathered. It looked ominous but there was no feeling of humidity or electric tension in the air so it didn’t seem as though it was a thundery storm. We warily made our way to the summit under these dark skies, arriving at the cairn just as the first smattering of raindrops fell. It was soon on with full waterproofs and then we sat down to see how long it would last. The cloud was moving in very unpredictable ways as the squall passed over us but it seemed that blue sky would have to prevail eventually.
+
+[![Sgor an Lochain Uaine](http://farm9.staticflickr.com/8446/7751519040_0542e0523a_b.jpg)](http://flic.kr/p/cNYyy1 "Sgor an Lochain Uaine by Nick Bramhall, on Flickr")
+
+[![Dark clouds over Beinn Bhrotain](http://farm9.staticflickr.com/8440/7751526218_2fa680a2c8_b.jpg)](http://flic.kr/p/cNYAFL "Dark clouds over Beinn Bhrotain by Nick Bramhall, on Flickr")
+
+[![Einich Cairn](http://farm9.staticflickr.com/8448/7751546382_135a92864e_b.jpg)](http://flic.kr/p/cNYGFq "Einich Cairn by Nick Bramhall, on Flickr")
+
+[![Mountains beyond Mountains](http://farm9.staticflickr.com/8291/7751552314_1e52636cb2_b.jpg)](http://flic.kr/p/cNYJrG "Mountains beyond Mountains by Nick Bramhall, on Flickr")
+
+[![Ben MacDui](http://farm8.staticflickr.com/7132/7751559604_348e83e6d4_b.jpg)](http://flic.kr/p/cNYLBo "Ben MacDui by Nick Bramhall, on Flickr")
+
+Twenty minutes later we were still getting wet. A decision was made to continue on as it seemed that the rain would have to relent. With little actual wind though the shower was very slow moving and the falling water made the ascent of Cairn Toul, a jumble of slippery boulders, a little more interesting. At the summit cairn there were still no views but we took a break for food anyway.
+
+As we descended off the south side of Cairn Toul the rain finally eased and within moments of arriving at the col before Point 1213 there were blue skies above. It was a wonderful feeling to take off waterproofs at last! After a pause for more photos we headed up to the cairn at the summit of Point 1213 enjoying views back to Cairn Toul whose summit was now, of course, cloud free! Ahead, and some way below us, was the Devil’s Point with the wide bealach below its bouldery summit slopes. This was to be our resting spot for the night.
+
+[![Misty over Loch nan Stuirteag](http://farm9.staticflickr.com/8425/7751576162_0d22490729_b.jpg)](http://flic.kr/p/cNYRwS "Misty over Loch nan Stuirteag by Nick Bramhall, on Flickr")
+
+[![Carn a' Mhaim above Glen Dee](http://farm9.staticflickr.com/8445/7751579932_5ff1922eb7_b.jpg)](http://flic.kr/p/cNYSDS "Carn a' Mhaim above Glen Dee by Nick Bramhall, on Flickr")
+
+[![Cairn Toul](http://farm9.staticflickr.com/8297/7751593780_23dce48373_b.jpg)](http://flic.kr/p/cNYWLC "Cairn Toul by Nick Bramhall, on Flickr")
+
+[![Looking back to Cairn Toul](http://farm9.staticflickr.com/8433/7751614920_2f1be8bc6c_b.jpg)](http://flic.kr/p/cNZ447 "Looking back to Cairn Toul by Nick Bramhall, on Flickr")
+
+[![Approaching the Devil's Point](http://farm9.staticflickr.com/8433/7751618934_e15903ec4f_b.jpg)](http://flic.kr/p/cNZ5fj "Approaching the Devil's Point by Nick Bramhall, on Flickr")
+
+After descending the grassy slopes from Point 1213 we quickly found a flattish, dryish area where the tents were pitched. Mine was up up first and then Rich got his Laser Comp up close by. The views were cloudier than they had been earlier in the day and there was an odd spot of rain but the conditions were mostly excellent and soon the slopes of Ben Macdui were lit by a gentle evening sunlight.
+
+[![Ben MacDui](http://farm9.staticflickr.com/8297/7751630738_593a8317a4_b.jpg)](http://flic.kr/p/cNZ8KQ "Ben MacDui by Nick Bramhall, on Flickr")
+
+[![Campsite on the Devil's Point](http://farm9.staticflickr.com/8281/7727405618_80a3dfeb6d_b.jpg)](http://flic.kr/p/cLQYtm "Campsite on the Devil's Point by Nick Bramhall, on Flickr")
+
+With the tents up and gear set out to dry we settled down for a spot of dinner accompanied by hot drinks. Stoves were compared, water was boiled and dinner was enjoyed.
+
+After dinner we went for an amble up to the summit of the Devil’s Point, an easy walk from the bealach up boulder slopes and then along the fabulous summit ridge with wide views out over the River Dhe. The gloaming was fast falling and the surrounding mountains stood silhouetted against the last pale light of the day. There wasn’t much colour as the sun sank beyond the cloudbanks in the west and all too briefly a rising full Moon was seen red and ruddy in the east.
+
+[![Ben MacDui](http://farm8.staticflickr.com/7280/7751643948_b958d2813d_b.jpg)](http://flic.kr/p/cNZcFA "Ben MacDui by Nick Bramhall, on Flickr")
+
+[![Glen Dee from the Devil's Point](http://farm9.staticflickr.com/8028/7751651688_02bbd155b7_b.jpg)](http://flic.kr/p/cNZeZ3 "Glen Dee from the Devil's Point by Nick Bramhall, on Flickr")
+
+[![Ben MacDui at Dusk](http://farm8.staticflickr.com/7248/7751654182_fd541c6e8e_b.jpg)](http://flic.kr/p/cNZfJ3 "Ben MacDui at Dusk by Nick Bramhall, on Flickr")
+
+[![Cairn Toul at Dusk](http://farm9.staticflickr.com/8446/7751656658_f9d21f9bf0_b.jpg)](http://flic.kr/p/cNZgsJ "Cairn Toul at Dusk by Nick Bramhall, on Flickr")
+
+In the fading light we picked our way back to the tent where hot chocolate was enjoyed as the first stars appeared overhead, twinkling in a gap between clouds. A gentle breeze had blown most of the midgies away and we sat around enjoying the final vestiges of the day. After the 4:30am alarm call it was good to finally clamber into bed around 11:30, though only after I hastily evicted a giant spider that was making itself cosy in the corner of my inner! 
+
+##Day 2
+
+**Date: 5th August 2012  
+Distance:  24.12m  
+Ascent: 1,091m  
+Time: 9hr 18min  
+Hills: Sgor Gaoith (Munro)  
+Weather: Early mist clearing to sunshine with later on cloud and then heavy rain  
+Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/362)**
+
+[![Campsite below the Devil's Point](http://farm8.staticflickr.com/7136/7754502660_66d64b001f_b.jpg)](http://flic.kr/p/cPeRtJ "Campsite below the Devil's Point by Nick Bramhall, on Flickr")
+
+I slept long and peacefully, right through until my alarm went off at 6:30. After a moments confusion I got it silenced and dosed off for another half an hour so. I finally roused myself just after 7 and through the mesh of my inner could quickly ascertain that the day was less than inspiring, our tents surrounded by cloud which was being wafted gently over the bealach. We got up though and soon had breakfast on the go. Hot drinks and a few cereal bars did the job for me whilst there was much amusement as Rich cooked up bacon and potatoes which was fried off in rehydrated fat! After a second cup of tea we got ourselves packed up, the tents saturated from the moist air adding a bit of weight to our packs.
+
+[![Organised Tent](http://farm9.staticflickr.com/8439/7754511896_e34e82befd_b.jpg)](http://flic.kr/p/cPeUdY "Organised Tent by Nick Bramhall, on Flickr")
+
+In the time it took to get breakfast and sort ourselves out for the day the cloud had begun to lift and there was faint inkling of misty hillsides somewhere off in the distance. It also wasn’t raining and buoyed by that fact we decided to give our planned high route a go. Initially this took us on a fabulous high level contour above Glen Geusachan. Far below us the Geusachan Burn flowed swiftly on its way to meet the Dhe whilst the distant roar of waterfalls tumbling down the flanks of Beinn Bhrotain were first heard and then seen as the mist gradually thinned and lifted.
+
+[![Deer Face Off](http://farm9.staticflickr.com/8287/7754514138_ceb7519695_b.jpg)](http://flic.kr/p/cPeUTC "Deer Face Off by Nick Bramhall, on Flickr")
+
+[![Glen Geusachan](http://farm9.staticflickr.com/8421/7754521310_3e408693a2_b.jpg)](http://flic.kr/p/cPeX2h "Glen Geusachan by Nick Bramhall, on Flickr")
+
+The terrain was pathless but relatively easy, only an occasional small boulder field to negotiate. The plan was to maintain height around to Loch nan Stuirteag which appeared out of the mist as we neared the head of Glen Geusachan. To get there though we had an interesting traverse. The first obstacle was the Allt Clais an t-Sabhail which comes down a narrow ravine from the col between Cairn Toul and the Angel’s Peak. With all the rain recently this was fast flowing and the rocks were slippery. A place to cross was found and then it was a gravelly scramble up the far bank. The rest of the traverse was no less interesting with several more stream crossings to negotiate, each one separated by strips of slippery, marshy and very steep slopes. It was with some relief we reached the shores of Loch nan Stuirteag where the sun was starting to shine!
+
+[![The head of Glen Geusachan](http://farm9.staticflickr.com/8437/7754531988_f62fa417ca_b.jpg)](http://flic.kr/p/cPf1co "The head of Glen Geusachan by Nick Bramhall, on Flickr")
+
+[![Allt Clais an t-Sabhail](http://farm9.staticflickr.com/8428/7754564952_a4e2bb6174_b.jpg)](http://flic.kr/p/cPfaZJ "Allt Clais an t-Sabhail by Nick Bramhall, on Flickr")
+
+[![Glen Geusachan](http://farm9.staticflickr.com/8437/7754582066_ca96cf7ce8_b.jpg)](http://flic.kr/p/cPfg5N "Glen Geusachan by Nick Bramhall, on Flickr")
+
+[![Crossing the Allt Clais an t-Sabhail](http://farm9.staticflickr.com/8286/7754591462_cc63ae8374_b.jpg)](http://flic.kr/p/cPfiSN "Crossing the Allt Clais an t-Sabhail by Nick Bramhall, on Flickr")
+
+[![Approaching Loch nan Stuirteag](http://farm9.staticflickr.com/8433/7754598610_c91d35cdbb_b.jpg)](http://flic.kr/p/cPfm13 "Approaching Loch nan Stuirteag by Nick Bramhall, on Flickr")
+
+We had a breather here, having a drink of water and a couple of snacks before heading off, now ascending beside the inflow of the loch and up onto the Moine Mhor. In these conditions - blue skies with impressive clouds drifting about - it was an amazing place to be. 
+
+[![Loch nan Stuirteag](http://farm9.staticflickr.com/8443/7754605010_4b45258cf3_b.jpg)](http://flic.kr/p/cPfnUo "Loch nan Stuirteag by Nick Bramhall, on Flickr")
+
+[![Loch nan Stuirteag](http://farm9.staticflickr.com/8441/7754635652_3887598018_b.jpg)](http://flic.kr/p/cPfx1G "Loch nan Stuirteag by Nick Bramhall, on Flickr")
+
+[![Einich Cairn](http://farm9.staticflickr.com/8305/7754655998_d53a9a7db0_b.jpg)](http://flic.kr/p/cPfD4u "Einich Cairn by Nick Bramhall, on Flickr")
+
+[![Clouds over the Moine Mor](http://farm9.staticflickr.com/8301/7754668684_3257cc7ddb_b.jpg)](http://flic.kr/p/cPfGQd "Clouds over the Moine Mor by Nick Bramhall, on Flickr")
+
+[![The Moine Mor](http://farm9.staticflickr.com/8282/7754691150_df0b0a1d8b_b.jpg)](http://flic.kr/p/cPfPvy "The Moine Mor by Nick Bramhall, on Flickr")
+
+We followed the wide, lazy river, keeping to the high ground just above the marshy flats. A path came and went but mostly we went across country, bearing roughly for the track we could see coming down from the high ground below Carn Ban Mor. The gentler slopes of the yesterday’s pointed peaks provided plenty of visual interest despite their rounded appearance and although I got wet feet, the ground was ok, and we were able to wend our way between the bogs on more or less solid ground.
+
+[![The Moine Mor and Cairngorms](http://farm9.staticflickr.com/8281/7754698634_b1719cc8bf_b.jpg)](http://flic.kr/p/cPfRJA "The Moine Mor and Cairngorms by Nick Bramhall, on Flickr")
+
+[![Cloud banks over the Moine Mor](http://farm9.staticflickr.com/8439/7754718048_a7259138b5_b.jpg)](http://flic.kr/p/cPfXvj "Cloud banks over the Moine Mor by Nick Bramhall, on Flickr")
+
+[![The Moine Mor](http://farm9.staticflickr.com/8153/7754729956_002e408af5_b.jpg)](http://flic.kr/p/cPg23C "The Moine Mor by Nick Bramhall, on Flickr")
+
+[![Rock pile on the Moine Mor](http://farm9.staticflickr.com/8297/7754755756_37904f7bd0_b.jpg)](http://flic.kr/p/cPg9Hs "Rock pile on the Moine Mor by Nick Bramhall, on Flickr")
+
+[![Towards Cairn Toul](http://farm9.staticflickr.com/8423/7754760014_2d7cd38697_b.jpg)](http://flic.kr/p/cPgaYS "Towards Cairn Toul by Nick Bramhall, on Flickr")
+
+After passing Loch nan Cnapan we climbed up gentle slopes towards the track, getting grand views down the Eidart to the hills beyond the upper waters of the Feshie. Here we paused for a spot of lunch, the views glorious in all directions and no other figure on the landscape. After lunch we decided to forgo the track and instead crossed to the head of Glen Einich for the remarkable views down to the loch. I last stood in a very similar spot back in March on my traverse from Blair Atholl to Aviemore. With clouds adding to the drama of the scene it was a pleasure to revisit this awesome spot. 
+
+[![Towards the Eidart](http://farm9.staticflickr.com/8425/7754781732_722eefc65b_b.jpg)](http://flic.kr/p/cPghrj "Towards the Eidart by Nick Bramhall, on Flickr")
+
+[![Loch nan Cnapan](http://farm9.staticflickr.com/8291/7754788286_143736a92d_b.jpg)](http://flic.kr/p/cPgjoj "Loch nan Cnapan by Nick Bramhall, on Flickr")
+
+[![Glen Einich](http://farm8.staticflickr.com/7132/7754799606_3173471b9f_b.jpg)](http://flic.kr/p/cPgnKu "Glen Einich by Nick Bramhall, on Flickr")
+
+[![Loch Einich](http://farm8.staticflickr.com/7116/7734634284_3f4602f74e_b.jpg)](http://flic.kr/p/cMu2iw "Loch Einich by Nick Bramhall, on Flickr")
+
+[![Out and about on the Moine Mor](http://farm9.staticflickr.com/8292/7754811784_b77c04b5c6_b.jpg)](http://flic.kr/p/cPgrns "Out and about on the Moine Mor by Nick Bramhall, on Flickr")
+
+We now made our way along the high level track which skirts around the western rim of Glen Einich heading towards the Munro of Sgor Gaoith. This gives spectacular views down to Loch Einich and for the first time on the trip we had a proper wind in our faces. Ahead of us Sgor Gaoith’s prominent summit was visited by several walkers and some of these we greeted as they made their way down. Up on the plateau we paused briefly to admire the views down Speyside towards the hazy hills of the Highlands and then headed up to the now deserted summit.
+
+[![Sgor Gaoith and Loch Einich](http://farm9.staticflickr.com/8438/7754856412_5b4dd4c3d0_b.jpg)](http://flic.kr/p/cPgECU "Sgor Gaoith and Loch Einich by Nick Bramhall, on Flickr")
+
+[![2012-08-05 at 13-38-13](http://farm9.staticflickr.com/8284/7754873746_31ea9a6344_b.jpg)](http://flic.kr/p/cPgKML "2012-08-05 at 13-38-13 by Nick Bramhall, on Flickr")
+
+[![Loch Einich](http://farm9.staticflickr.com/8448/7754911650_7cf329cd73_b.jpg)](http://flic.kr/p/cPgX4h "Loch Einich by Nick Bramhall, on Flickr")
+
+[![Summit of Sgor Gaoith](http://farm9.staticflickr.com/8304/7754936080_18e3ce4d71_b.jpg)](http://flic.kr/p/cPh5ju "Summit of Sgor Gaoith by Nick Bramhall, on Flickr")
+
+[![Strathspey](http://farm8.staticflickr.com/7121/7754942358_1d6f96610b_b.jpg)](http://flic.kr/p/cPh7bJ "Strathspey by Nick Bramhall, on Flickr")
+
+Braeriach was clinging onto some cloud but gradually came free as we enjoyed the views down to Loch Einich and further back across the Moine Mor and the route we had taken that morning. Looking back over the hills of yesterday there was a remarkable sense of journey which really only comes in the rolling plateau of the Cairngorms. We spent a long time on the summit, sending Tweets, checking Social Hiking, admiring the views and having some more food. We had the place to ourselves and enjoyed just drinking in all the stunning scenery. The weather and light was changing all the time and as we got ready to leave dark clouds had amassed over the high Cairngorms. 
+
+[![Sgor Gaoith summit](http://farm8.staticflickr.com/7115/7754948026_5b98ff14f2_b.jpg)](http://flic.kr/p/cPh8Ss "Sgor Gaoith summit by Nick Bramhall, on Flickr")
+
+[![Sgor Gaoith above Braeriach](http://farm9.staticflickr.com/8437/7754986220_f9d7fa5e43_b.jpg)](http://flic.kr/p/cPhkdY "Sgor Gaoith above Braeriach by Nick Bramhall, on Flickr")
+
+[![Across the Central Highlands](http://farm9.staticflickr.com/8437/7755021960_1aeaab6ce5_b.jpg)](http://flic.kr/p/cPhvRb "Across the Central Highlands by Nick Bramhall, on Flickr")
+
+[![The head of Glen Einich](http://farm8.staticflickr.com/7252/7755026850_f161b29c5f_b.jpg)](http://flic.kr/p/cPhxiu "The head of Glen Einich by Nick Bramhall, on Flickr")
+
+We got our packs sorted and then headed off on the final hill leg of the trip. From Sgor Gaoith we followed the clear track along to Sgoran Dubh Mor and then dropped down the ridge towards Creag Dubh. As we descended a strange part rainbow appeared in the rays of light over Glen Einich. This gradually developed over the course of an hour or so into a full blown double bow arcing across the glen. It was spectacular and many photos were taken. Of course, after the rainbow came the rain and as we headed up to Creag Dubh it started. Though it was light and drizzly at first we still took the opportunity to shelter in the lee of Clach Choutsaich to have some final food before pressing on.
+
+[![Sgor Gaoith above Glen Einich](http://farm9.staticflickr.com/8445/7755094788_1886f81fc5_b.jpg)](http://flic.kr/p/cPhTuQ "Sgor Gaoith above Glen Einich by Nick Bramhall, on Flickr")
+
+[![Creag Dubh](http://farm9.staticflickr.com/8286/7755132334_5ee5534618_b.jpg)](http://flic.kr/p/cPi5Eb "Creag Dubh by Nick Bramhall, on Flickr")
+
+[![Rainbow](http://farm9.staticflickr.com/8438/7755137198_52ca3712ae_b.jpg)](http://flic.kr/p/cPi773 "Rainbow by Nick Bramhall, on Flickr")
+
+[![Rainbow over Glen Einich](http://farm9.staticflickr.com/8446/7755148132_6f33aee88d_b.jpg)](http://flic.kr/p/cPiamy "Rainbow over Glen Einich by Nick Bramhall, on Flickr")
+
+[![Creag Dubh](http://farm9.staticflickr.com/8306/7755160500_cf11f29bdf_b.jpg)](http://flic.kr/p/cPie2N "Creag Dubh by Nick Bramhall, on Flickr")
+
+[![Double rainbow over Glen Einich](http://farm9.staticflickr.com/8286/7755165174_22c60ce0dd_b.jpg)](http://flic.kr/p/cPifqo "Double rainbow over Glen Einich by Nick Bramhall, on Flickr")
+
+Near the Argyll Stone the rain really started and the rolling summit of Creag Dubh was lost in the clag. Careful navigation got us along the remainder of the ridge until it bent around to drop into Glen Einich. The slopes, at first rather benign, soon turned into a steep and slippery descent which landed us in a fine stretch of bog to be traversed to the track. Luckily the rain only really started as we reached the firm ground.
+
+[![Clouds gathering over the Glen Einich hills](http://farm9.staticflickr.com/8438/7755175298_ba08a8c12e_b.jpg)](http://flic.kr/p/cPiiqW "Clouds gathering over the Glen Einich hills by Nick Bramhall, on Flickr")
+
+[![Dark clouds gather](http://farm8.staticflickr.com/7278/7755180592_e34baf403a_b.jpg)](http://flic.kr/p/cPik1d "Dark clouds gather by Nick Bramhall, on Flickr")
+
+With a clear way ahead and no incentive to hang around we headed off, making our way back to Whitewell. The rain increased in intensity until it was a full on assault, heavy drops falling near vertically down. The track rapidly turned to a river, large pools developing, and drainage channels fast flowing with muddy, silt-charged water. Our pace was fairly rapid and so we covered the last couple of miles very quickly.
+
+Back at the car it was still thrumming down. Plans to change out of wet clothing were abandoned and after only the most basic of post-walk rituals we headed down the road into Aviemore. The roads were as wet as the track had been and the puddles continued to grow. Happily we got down to town ok and then sought shelter in the Cairngorm Hotel where a post walk (half)pint was enjoyed, accompanied by hot soup and a course of steaming Venison stew.
+
+Then it was a case of dropping Rich off back at the train station before heading back to Aberdeen. The weather made the return drive interesting. The torrential rain thankfully stopped a few miles east of Aviemore and by the time I got to Aberlour the roads were dry. I decided to head across the hills but encountered thick fog on the drive to Huntly. It was a relief to get to the A96 and then a quick drive back into Aberdeen getting back in time to jump into bed, happy but exhausted, just before midnight.

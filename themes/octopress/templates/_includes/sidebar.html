@@ -1,0 +1,41 @@
+<aside class="sidebar">
+  {% if SIDEBAR_IMAGE %}
+  <section>
+	  <img src="{{ SITEURL }}/{{ SIDEBAR_IMAGE }}" alt="{{ SIDEBAR_IMAGE_ALT}}" width="{{SIDEBAR_IMAGE_WIDTH}}"/> 
+  </section>
+  {% endif %}
+  {% if article %}
+  <section>
+    <h1>About Me</h1>
+    <p>I’m Nick Bramhall, a hillwalker and backpacker with a passion for the wild mountains and starry skies of Scotland.</p>
+    <p>The easiest way to get in touch with me is over on <a href="https://twitter.com/nickbramhll">Twitter</a>, or you can use the <a href="/contact">contact form</a>.</p>
+  </section>
+  {% endif %}
+  <section>
+    <h1>Recent Posts</h1>
+    <ul id="recent_posts">
+      {% for article in articles[:5] %}
+      <li class="post">
+          <a href="{{ SITEURL }}/{{ article.url }}">{{ article.title|striptags }}</a>
+      </li>
+      {% endfor %}
+    </ul>
+  </section>
+  {% if categories %}
+  <section>
+      
+    <h1>Categories</h1>
+    <ul id="recent_posts">
+      {% for category, articles in categories %}
+        <li><a href="{{ SITEURL }}/{{ category.url }}">{{ category }}</a></li>
+      {% endfor %}
+    </ul>
+  </section>
+  {% endif %}
+
+  {% include '_includes/github.html' %}
+  {% include '_includes/social.html' %}
+  {% include '_includes/links.html' %}
+  {% include '_includes/twitter_sidebar.html' %}
+  {% include '_includes/gplus_sidebar.html' %}
+</aside>

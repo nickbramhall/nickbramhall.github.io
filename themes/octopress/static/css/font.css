@@ -1,0 +1,7 @@
+@font-face {
+	font-family: 'Enigmatic';
+	font-style: normal;
+	src:
+		local('EnigmaticRegular'),
+		url('../fonts/Enigma__2-webfont.woff') format('woff');
+}

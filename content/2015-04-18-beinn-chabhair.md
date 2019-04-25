@@ -1,0 +1,163 @@
+Title: Beinn Chabhair from Inverarnan
+Date: 2015-04-18 20:38
+Modified: 2015-04-18 20:38
+Category: The West Highlands
+Tags: report, trip, hiking, scotland, munro, crianlarich, lomond, inverarnan
+Author: Nick Bramhall
+Slug: beinn-chabhair
+
+_A pleasant walk in beautiful, warm spring conditions to the Munro of Beinn Chabhair above Glen Falloch in the southwest Highlands._
+
+<a href="https://www.flickr.com/photos/black_friction/17050420870" title="Ben Lomond from Beinn Chabhair by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7595/17050420870_5880359f5b_b.jpg" width="1024" height="576" alt="Ben Lomond from Beinn Chabhair"></a>
+
+<!--more-->
+
+**Date: 18th April 2015  
+Distance: 14.5km  
+Ascent: 916m  
+Hills: Beinn Chabhair (Munro, 933m)    
+Weather: Warm and sunny with a cool breeze at times                     
+Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/429)**
+
+This weekend had been in the diary for a while, fully expecting winter to be holding its steely grip on the mountains and for the views to be limited. Last September I’d accompanied Matt and Jenny on their first two Munros, those [above Loch Lochy](/blog/2014/10/loch-lochy-munros/), west of the Great Glen on a perfect autumn day with sunshine and bellowing stags. They’d been quite taken with the whole thing and were keen to get up to Scotland for another outing in the mountains. With their accomodation booked in Callander we’d agreed to do something in the southwest and after I sent Matt my list of unclimbed Munros he chose Beinn Chabhair as our target for the day. This is set back from Glen Falloch at the western end of the Crianlarich hills and based on likely conditions we chose to ascend it by the standard book route from the Drovers Inn besides the A82 on the west side of the hill. This would hopefully give a good path to follow and ensure we missed out any remnant snow patches on northern and eastern aspects which were still hanging on despite the widespread thaw and forecast mild temperatures.
+
+We met at Lochearnhead under a promising blue sky. It was already warming up nicely a little after 9am and following a quick drive around by Crianlarich we found the Drovers Inn car park filling up rapidly with walkers. After sorting out gear for the day and checking water supplies we were off, following the A82 a short way north before crossing the River Falloch and then detouring around the Ben Glas Farm campsite where people were up and about, airing out sleeping bags and enjoying breakfast.
+
+<a href="https://www.flickr.com/photos/black_friction/17236867142" title="River Falloch by Beinn Glas Farm by Nick Bramhall, on Flickr"><img src="https://farm9.staticflickr.com/8773/17236867142_9e1d10a9a1_b.jpg" width="1024" height="682" alt="River Falloch by Beinn Glas Farm"></a>
+
+After a little bit of navigational uncertainty (entirely my fault) we found the route to the foot of the steep slope where a boggy, eroded path had us rapidly gaining height. The strong sunlight and lack of breeze made for a very hot and sweaty start and we were soon pausing to ditch most of our layers.
+
+<a href="https://www.flickr.com/photos/black_friction/16618352023" title="Ben Vorlich across Glen Falloch by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7726/16618352023_5b6b034cb6_b.jpg" width="1024" height="683" alt="Ben Vorlich across Glen Falloch"></a>
+
+We made short work of the steep climb and found the going much easier as the gradient eased and started to contour around to where the Ben Glas Burn flows out of the high moorland west of the Munro.
+
+<a href="https://www.flickr.com/photos/black_friction/17050779438" title="Ben Vorlich and Glen Falloch by Nick Bramhall, on Flickr"><img src="https://farm9.staticflickr.com/8759/17050779438_5b9548103b_b.jpg" width="1024" height="683" alt="Ben Vorlich and Glen Falloch"></a>
+
+At a junction with a landrover track we caught up with a group of DofE-ers who seemed to be practicing river crossing techniques whilst wearing their big packs. It looked like hard work in the sunshine.
+
+<a href="https://www.flickr.com/photos/black_friction/17031071047" title="River Crossing Practice by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5448/17031071047_9547e5fb73_b.jpg" width="1024" height="683" alt="River Crossing Practice"></a>
+
+The previously unblemished blue skies were now playing host to a few fluffy white clouds which floated over the lumpy top of Meal Mor nan Eag to our left. As we progressed eastward, following the path which occassionaly disappeard in amongst bogs and marsh, the first view of Beinn Chabhair and its long ridge appeared.
+
+<a href="https://www.flickr.com/photos/black_friction/17237925171" title="Beinn Chabhair appears by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7628/17237925171_641871eb7f_b.jpg" width="1024" height="576" alt="Beinn Chabhair appears"></a>
+
+Higher up as we progressed towards the lochan the ground steepened and became less boggy. Here there were a couple of fun little scrambles as the pass weaved its way around and over crags and little side streams.
+
+<a href="https://www.flickr.com/photos/black_friction/17050916640" title="Views of the Beinn Glas Burn by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5453/17050916640_5b81ed51ec_b.jpg" width="1024" height="683" alt="Views of the Beinn Glas Burn"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17212464186" title="Ben Vorloch and the Beinn Glas Burn by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7693/17212464186_0792291dab_b.jpg" width="1024" height="683" alt="Ben Vorloch and the Beinn Glas Burn"></a>
+
+We had a pause besides one of these side streams for a snack break (and for someone to address their lack of caffeine). Feeling refreshed and with water bottle replenished with crisp, cold stream water, we were off again. Lochan Beinn Chabhair soon came into view and we were turning away from the course of the Ben Glas Burn and beginning the steep pull up to the ridge on the east side of Meall nan Tarmachan.
+
+<a href="https://www.flickr.com/photos/black_friction/17030971117" title="Lochan Ben Chabhair and Parlan Hill by Nick Bramhall, on Flickr"><img src="https://farm9.staticflickr.com/8733/17030971117_0bba9cbbe9_b.jpg" width="1024" height="683" alt="Lochan Ben Chabhair and Parlan Hill"></a>
+
+The path made easy work of the grassy slope, gaining us height quickly with the views starting to open out over the blue waters of the lochan to Parlan Hill and Ben Vorlich in the Arrochar group off in the distance.
+
+<a href="https://www.flickr.com/photos/black_friction/17052212659" title="The path above Lochan Beinn Chabhair by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5456/17052212659_878eea6ae4_b.jpg" width="1024" height="683" alt="The path above Lochan Beinn Chabhair"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/16618179593" title="Heading up towards Meall nan Tarmachan by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7713/16618179593_faa404b180_b.jpg" width="1024" height="683" alt="Heading up towards Meall nan Tarmachan"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17050820190" title="Ben Vorlich by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7614/17050820190_2528d2be65_b.jpg" width="1024" height="683" alt="Ben Vorlich"></a>
+
+The steep gradient eased as we came up to the eastern shoulder of Meall nan Tarmachan. Here we paused to take in the wonderful views as we started to get a view of Loch Long. The summit of Beinn Chabhair still towered above us to the east but we were definitely making progress.
+
+<a href="https://www.flickr.com/photos/black_friction/17212385516" title="View back down the Ben Glas Burn by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7629/17212385516_e75e03fa51_b.jpg" width="1024" height="683" alt="View back down the Ben Glas Burn"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17238334525" title="Looking up to Beinn Chabhair by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7629/17238334525_51987fb215_b.jpg" width="1024" height="683" alt="Looking up to Beinn Chabhair"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17050735460" title="Parlan Hill, Loch Long and Ben Vorlich by Nick Bramhall, on Flickr"><img src="https://farm9.staticflickr.com/8789/17050735460_741cceb2a5_b.jpg" width="1024" height="683" alt="Parlan Hill, Loch Long and Ben Vorlich"></a>
+
+The path now winds its way up and down and around the complex terrain marking the bealach between Tarmachan and Beinn Chabhair. There was a bit of height loss and a snow patch or two to circumvent but we were soon at the start of the Beinn Chabhair ridge looking across the wide glen towards An Caisteal.
+
+<a href="https://www.flickr.com/photos/black_friction/17237681801" title="An Caisteal from the Beinn Chabhair bealach by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7604/17237681801_38d6552619_b.jpg" width="1024" height="683" alt="An Caisteal from the Beinn Chabhair bealach"></a>
+
+There were some spectacular views north towards Glen Falloch and the hills around the Bridge of Orchy and Glen Lyon. As we rose on the northwest ridge of Beinn Chabhair the Tyndrum Hills dominated by Beinn Lui also made an appearance. In the distance we could just discern the flat back of Ben Nevis rising between a gap in the Mamores.
+
+<a href="https://www.flickr.com/photos/black_friction/17050685200" title="The northwest ridge of Beinn Chabhair by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7710/17050685200_b8becb76e5_b.jpg" width="1024" height="683" alt="The northwest ridge of Beinn Chabhair"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17212245646" title="On the track to Beinn Chabhair by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7655/17212245646_cbe5611fd2_b.jpg" width="1024" height="683" alt="On the track to Beinn Chabhair"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17050648070" title="Glen Falloch and the Bridge of Orchy Hills by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7668/17050648070_530d0d2902_b.jpg" width="1024" height="683" alt="Glen Falloch and the Bridge of Orchy Hills"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17238181675" title="Tyndrum Hills and Glen Falloch by Nick Bramhall, on Flickr"><img src="https://farm9.staticflickr.com/8822/17238181675_b0e162ec6e_b.jpg" width="1024" height="683" alt="Tyndrum Hills and Glen Falloch"></a>
+
+The path up the ridge, though steep and eroded in places, is a good one, and again we seemed to be gaining height without too many problems. The sun was shining and we’d left behind a group of people who we had caught up to at the bealach. The views were really spectacular now as we could see all the way out west towards the Cruachan group.
+
+<a href="https://www.flickr.com/photos/black_friction/17030732007" title="Meall nan Tarmachan and the Southwest Highlands by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7607/17030732007_d574bcab24_b.jpg" width="1024" height="683" alt="Meall nan Tarmachan and the Southwest Highlands"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/16615709774" title="Cruachan and Tyndrum Hills by Nick Bramhall, on Flickr"><img src="https://farm9.staticflickr.com/8784/16615709774_2652c75dbc_b.jpg" width="1024" height="683" alt="Cruachan and Tyndrum Hills"></a>
+
+To the southwest there was now a better view down Loch Long and Ben Lomond was a dark tall point further south.
+
+<a href="https://www.flickr.com/photos/black_friction/16617929523" title="Loch Long and Arrochar Hills by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7699/16617929523_0338740176_b.jpg" width="1024" height="683" alt="Loch Long and Arrochar Hills"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17030700777" title="Ben Lomond and Loch Long by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7630/17030700777_51c997da28_b.jpg" width="1024" height="683" alt="Ben Lomond and Loch Long"></a>
+
+There were a few craggy sections which the path picked its way around and then a final snow patch before the ridge was levelling out and we emerged on the northwest end, looking off to the actual summit some way to the southeast.
+
+<a href="https://www.flickr.com/photos/black_friction/17030664987" title="Arrochar and Beinn Bhuidhe by Nick Bramhall, on Flickr"><img src="https://farm9.staticflickr.com/8734/17030664987_634a888e56_b.jpg" width="1024" height="683" alt="Arrochar and Beinn Bhuidhe"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17051882369" title="First view of Beinn Chabhair&#x27;s summit by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7650/17051882369_dfdbb8e225_b.jpg" width="1024" height="683" alt="First view of Beinn Chabhair&#x27;s summit"></a>
+
+The path dipped and swooped its way along the delightful broad ridge to the summit and then we were climbing up to the cairn where we celebrated our arrival with a few photographs and then a sit down for lunch.
+
+<a href="https://www.flickr.com/photos/black_friction/17050220198" title="Summit of Beinn Chabhair by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5330/17050220198_db7827ebd2_b.jpg" width="1024" height="576" alt="Summit of Beinn Chabhair"></a>
+
+The views were glorious in all directions and as we sat, slowly more and more people arrived until there were quite a few people dotted around the summit area enjoying the day.
+
+<a href="https://www.flickr.com/photos/black_friction/16615571744" title="Loch Long and Arrochar from Beinn Chabhair by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7624/16615571744_0bafdb8326_b.jpg" width="1024" height="576" alt="Loch Long and Arrochar from Beinn Chabhair"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/16617802083" title="Lochan Beinn Chabhair and Beinn Bhuidhe by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7697/16617802083_459daf17ec_b.jpg" width="1024" height="683" alt="Lochan Beinn Chabhair and Beinn Bhuidhe"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17212044616" title="Towards the River Larig by Nick Bramhall, on Flickr"><img src="https://farm9.staticflickr.com/8762/17212044616_d7bb41ebb8_b.jpg" width="1024" height="683" alt="Towards the River Larig"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17050420870" title="Ben Lomond from Beinn Chabhair by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7595/17050420870_5880359f5b_b.jpg" width="1024" height="576" alt="Ben Lomond from Beinn Chabhair"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/16617736183" title="The Crianlarich Hills from Beinn Chabhair by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7603/16617736183_b8a087b747_b.jpg" width="1024" height="683" alt="The Crianlarich Hills from Beinn Chabhair"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/16617751043" title="West from Beinn Chabhair by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5444/16617751043_beb4083dda_b.jpg" width="1024" height="683" alt="West from Beinn Chabhair"></a>
+
+Feeling refreshed we had a very brief discussion about routes and decided to head back the way we had come rather than following the ridge round and descending down towards Parlan Hill. The busy summit area was soon left behind and we retraced our steps back down towards the bealach.
+
+<a href="https://www.flickr.com/photos/black_friction/16617721783" title="Looking back to Beinn Chabhair&#x27;s summit by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5348/16617721783_fb35ae6c62_b.jpg" width="1024" height="683" alt="Looking back to Beinn Chabhair&#x27;s summit"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17237914645" title="Beinn Chabhair ridge by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7598/17237914645_1cf02a1fdb_b.jpg" width="1024" height="683" alt="Beinn Chabhair ridge"></a>
+
+We lost height quickly, the weather holding well and the views equally as good as they had been on the way up. Soon we were at the bealach looking back up at the tiny figures up on the summit.
+
+<a href="https://www.flickr.com/photos/black_friction/16617673493" title="Summit of Beinn Chabhair by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7663/16617673493_d98ba8188e_b.jpg" width="1024" height="683" alt="Summit of Beinn Chabhair"></a>
+
+I got a good view of Beinn Bhuidhe, my target for the Sunday, which appeared to be largely snow free, even on this eastern side.
+
+<a href="https://www.flickr.com/photos/black_friction/16617633183" title="Beinn Bhuidhe by Nick Bramhall, on Flickr"><img src="https://farm9.staticflickr.com/8797/16617633183_137988de85_b.jpg" width="1024" height="576" alt="Beinn Bhuidhe"></a>
+
+There was a snow patch to cross and then we were winding our way below Meall nan Tarmachan to start the final steep descent back down to the Ben Glas Burn just downstream of Lochan Beinn Chabhair.
+
+<a href="https://www.flickr.com/photos/black_friction/16617618603" title="West from Beinn Chabhair by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5323/16617618603_75ebd9650f_b.jpg" width="1024" height="683" alt="West from Beinn Chabhair"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17211811146" title="Meall nan Tarmachan by Nick Bramhall, on Flickr"><img src="https://farm9.staticflickr.com/8719/17211811146_27b9e1e59a_b.jpg" width="1024" height="683" alt="Meall nan Tarmachan"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17051570779" title="Lochan Beinn Chabhair and Parlan Hill by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7642/17051570779_764a518f89_b.jpg" width="1024" height="683" alt="Lochan Beinn Chabhair and Parlan Hill"></a>
+
+Then it was a simple case of following our outward route, avoiding the worst of the bogs encountered earlier and enjoying the views back to Beinn Chabhair which quickly receded behind us.
+
+<a href="https://www.flickr.com/photos/black_friction/17211773816" title="Ben Glas Burn and Beinn Chabhair by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7668/17211773816_9669678223_b.jpg" width="1024" height="683" alt="Ben Glas Burn and Beinn Chabhair"></a>
+
+The Drovers Inn came into view as we reached the lip of Glen Falloch and all that remained was the steep slope down past the impressive series of waterfalls where we started to encounter a few tourists exploring the hillside.
+
+<a href="https://www.flickr.com/photos/black_friction/17211720466" title="Tyndrum Hills from above Glen Falloch by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7632/17211720466_8d958d4797_b.jpg" width="1024" height="683" alt="Tyndrum Hills from above Glen Falloch"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17237111621" title="Ben Vorlich across Glen Falloch by Nick Bramhall, on Flickr"><img src="https://farm9.staticflickr.com/8778/17237111621_fcd5d0b5a5_b.jpg" width="1024" height="683" alt="Ben Vorlich across Glen Falloch"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/16617438843" title="Trees above Glen Falloch by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7646/16617438843_9646b18c01_b.jpg" width="1024" height="576" alt="Trees above Glen Falloch"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17237075631" title="Drovers Inn and Ben Glas Farm by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7614/17237075631_8f222b2a38_b.jpg" width="1024" height="683" alt="Drovers Inn and Ben Glas Farm"></a>
+
+We descended back down to the campsite where we found it much busier with tents being set up and a pair of lambs resting in the cool shade away from the hustle and bustle.
+
+<a href="https://www.flickr.com/photos/black_friction/17237066261" title="Ben Glas Falls by Nick Bramhall, on Flickr"><img src="https://farm8.staticflickr.com/7637/17237066261_aa7b8d3608_b.jpg" width="1024" height="683" alt="Ben Glas Falls"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/17235891032" title="Lambs at Ben Glas Farm by Nick Bramhall, on Flickr"><img src="https://farm9.staticflickr.com/8752/17235891032_cf2c6c754f_b.jpg" width="1024" height="682" alt="Lambs at Ben Glas Farm"></a>
+
+Back at the cars we retired to the Drovers Inn for cold drinks and a chat in the sunshine, reflecting back on an excellent day in perfect weather.
+

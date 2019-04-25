@@ -1,0 +1,174 @@
+Title: Bynack More and Creag Mhor
+Date: 2015-10-10 20:16
+Modified: 2015-10-10 20:16
+Category: The Cairngorms
+Tags: munro,  scotland,  daywalk,  dayhike,  ryvoan,  cairngorms,  bynack more
+Author: Nick Bramhall
+Slug: bynack-more
+
+_A daywalk in the eastern Cairngorms taking in Bynack More, Loch Avon and Creag Mhor_
+
+<a href="https://www.flickr.com/photos/black_friction/22631598785/in/album-72157659722709595/" title="Loch Avon"><img src="https://farm6.staticflickr.com/5786/22631598785_b5c5cf550a_b.jpg" width="1024" alt="Loch Avon"></a>
+
+<!--more-->
+
+**Date: 10th October 2015  
+Distance: 35.9km  
+Ascent: 1,303m  
+Hills: Bynack More (Munro, 1,090m), Creag Mhor (Corbett, 895m)        
+Weather: Sunny with a cool breeze and occassional shower                       
+Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/92)**
+
+A blush pink sky rapidly turned into a fiery sunrise as the red sun rose through a pale mist clinging to the rooftops and spires of Aberdeen. Early on Saturday it was a quick drive around to Coylumbridge and then along the ski centre access road passing the utterly still waters of Loch Morlich, the northern corries reflected in its dark waters, before pulling into the Allt Mor parking area just beyond the Glenmore Lodge turning.
+
+There were a few midges buzzing around the car park so I was soon off, picking up a track that seemed to be leading in the right direction. Unfortunately I soon came to the banks of the Allt Mor itself with no bridge in sight. The water was swift but relatively shallow so I decided to wade across to the far side where the path I wanted to be on ran below the pines. Later on I would find that in my rush to escape the midges I had taken the wrong exit out of the car park.
+ 
+The day was overcast and a little chilly at this stage but it was a delight to be back on the footpaths of the Rothiemurchas Forest, deserted at this hour of the day. Everything felt damp and autumnal, accentuated by the still air. 
+
+Eventually the narrow footpath wound its way past the rifle range and deposited me on the excellent track running from Glenmore Lodge towards the Ryvoan Pass. I took this and after a short time came to An Lochan Uaine, the green lochan, which sits in the middle of the pass, reflecting the green colour of the surrounding trees. Like Morlich, its waters were utterly still and a I wandered along the sandy, north bank to the far end.
+
+<a href="https://www.flickr.com/photos/black_friction/22007334304/in/album-72157659722709595/" title="An Lochan Uaine"><img src="https://farm1.staticflickr.com/634/22007334304_eae26e33b6_b.jpg" width="1024" alt="An Lochan Uaine"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22616581712/in/album-72157659722709595/" title="An Lochan Uaine"><img src="https://farm6.staticflickr.com/5798/22616581712_37111e5ddb_b.jpg" width="1024" alt="An Lochan Uaine"></a>
+ 
+Once I had rejoined it, the good track swept me along, out of the pass and across the undulating terrain that separates Ryvoan from Strath Nethy. At the River Nethy I thought I’d have a sit by the stream and drink a cup of tea. However, a few seconds in and the midges had already found me so I drank up and hurried on, starting the long climb up to the high moorland to the north of Bynack More.
+
+<a href="https://www.flickr.com/photos/black_friction/22630144995/in/album-72157659722709595/" title="Cobwebs and Heather"><img src="https://farm1.staticflickr.com/625/22630144995_55299371bd_b.jpg" width="1024" alt="Cobwebs and Heather"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22009094823/in/album-72157659722709595/" title="Strath Nethy"><img src="https://farm6.staticflickr.com/5631/22009094823_5ed66cb5f9_b.jpg" width="1024" alt="Strath Nethy"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22007541004/in/album-72157659722709595/" title="Meall a&#x27; Buchaille above Ryvoan"><img src="https://farm6.staticflickr.com/5626/22007541004_baba89818d_b.jpg" width="1024" alt="Meall a&#x27; Buchaille above Ryvoan"></a>
+ 
+I passed a couple just as we reached the top of the climb and then made my way southward to Bynack More. Off to the east it looked like brighter conditions still prevailed closer to the coast but westward towards the Monadhliath there were signs of more defined clouds than the grey sheet sitting above me.
+
+<a href="https://www.flickr.com/photos/black_friction/22641547941/in/album-72157659722709595/" title="Bynack More and Bynack Beag"><img src="https://farm1.staticflickr.com/571/22641547941_24c3c177e4_b.jpg" width="1024" alt="Bynack More and Bynack Beag"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22009209973/in/album-72157659722709595/" title="Ben Rinnes"><img src="https://farm1.staticflickr.com/645/22009209973_e357f7e546_b.jpg" width="1024" alt="Ben Rinnes"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22616797042/in/album-72157659722709595/" title="Eastern Cairngorms"><img src="https://farm1.staticflickr.com/700/22616797042_13d5ab76b2_b.jpg" width="1024" alt="Eastern Cairngorms"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22009225543/in/album-72157659722709595/" title="Cloud over the Monadhliath"><img src="https://farm1.staticflickr.com/577/22009225543_6046834679_b.jpg" width="1024" alt="Cloud over the Monadhliath"></a>
+ 
+I made my way up the final ridge to the Munro summit, occasionally leaving the path to scramble up sections of blocky granite. Over on Bynack Beag I watched a party of three climb up from Strath Nethy and make their way towards the main summit.
+
+<a href="https://www.flickr.com/photos/black_friction/22616917372/in/album-72157659722709595/" title="The ridge to Bynack More"><img src="https://farm1.staticflickr.com/659/22616917372_1447184984_b.jpg" width="1024" alt="The ridge to Bynack More"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22604477536/in/album-72157659722709595/" title="Summit of Bynack More"><img src="https://farm6.staticflickr.com/5674/22604477536_b73c60050c_b.jpg" width="1024" alt="Summit of Bynack More"></a>
+ 
+Despite only having seen a handful of people since leaving the car, I emrged to find quite a busy summit of Bynack More with people sitting around eating lunch or taking photos at the cairn. I found myself a nice rock to perch on, gazing off to the peaks of Ben Macdui, Beinn Mheadhoin and Cairngorm itself whilst I had a snack and some water.
+
+<a href="https://www.flickr.com/photos/black_friction/22442634360/in/album-72157659722709595/" title="Summit of Bynack More"><img src="https://farm1.staticflickr.com/575/22442634360_8f75713707_b.jpg" width="1024" alt="Summit of Bynack More"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22007811804/in/album-72157659722709595/" title="Towards Aviemore from Bynack More"><img src="https://farm1.staticflickr.com/779/22007811804_cb01bc30d1_b.jpg" width="1024" alt="Towards Aviemore from Bynack More"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22442673630/in/album-72157659722709595/" title="Central Cairngorms from Bynack More"><img src="https://farm6.staticflickr.com/5794/22442673630_7727aa8f0f_b.jpg" width="1024" alt="Central Cairngorms from Bynack More"></a>
+ 
+Nearby I overheard a group discussing how they would get up on to Cairngorm. Having done the [same thing myself back in 2010](/blog/2010/08/bynack-more-and-cairn-gorm/) I shared my knowledge of the good stalker’s path that rises up from the Saddle and then headed off to bag Bynack Beag, the lower Munro Top situated to the west of the main summit. This involved a steep descent down to the col and then a gentle climb up to the top which is marked by an easily surmounted tor.
+
+<a href="https://www.flickr.com/photos/black_friction/22007901314/in/album-72157659722709595/" title="Bynack More from Bynack Beag"><img src="https://farm1.staticflickr.com/720/22007901314_38f0605811_b.jpg" width="1024" alt="Bynack More from Bynack Beag"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22442781970/in/album-72157659722709595/" title="Loch Avon basin from Bynack Beag"><img src="https://farm6.staticflickr.com/5662/22442781970_5fb93be4f8_b.jpg" width="1024" alt="Loch Avon basin from Bynack Beag"></a>
+ 
+From here I wandered generally southward, crossing the stream of the Allt a' Choire Dheirg and then handrailing the edge above Strath Nethy as I made my way up to A’ Choinneach. 
+
+<a href="https://www.flickr.com/photos/black_friction/22617181642/in/album-72157659722709595/" title="Below Bynack More"><img src="https://farm1.staticflickr.com/690/22617181642_a3f8728a80_b.jpg" width="1024" alt="Below Bynack More"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22630773245/in/album-72157659722709595/" title="Strath Nethy"><img src="https://farm6.staticflickr.com/5640/22630773245_780a67dc0b_b.jpg" width="1024" alt="Strath Nethy"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22604787786/in/album-72157659722709595/" title="Bynack More and the Barns of Bynack"><img src="https://farm6.staticflickr.com/5740/22604787786_11615ac628_b.jpg" width="1024" alt="Bynack More and the Barns of Bynack"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22642052491/in/album-72157659722709595/" title="Summit of A&#x27; Choinneach"><img src="https://farm1.staticflickr.com/741/22642052491_01d2a52b65_b.jpg" width="1024" alt="Summit of A&#x27; Choinneach"></a>
+
+After this off-path excursion I picked up the stalker’s path which dropped me down to the Saddle. At this point the day brightened and it seemed like the sun might actually come out. The burnt orange of the late season heather looked stunning and I enjoyed the views up the astonishingly still water of Loch Avon towards Shelter Stone crag.
+
+<a href="https://www.flickr.com/photos/black_friction/22630843845/in/album-72157659722709595/" title="Loch Avon"><img src="https://farm6.staticflickr.com/5695/22630843845_c7b333c9f9_b.jpg" width="1024" alt="Loch Avon"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22642169411/in/album-72157659722709595/" title="Lairig an Laoigh"><img src="https://farm6.staticflickr.com/5791/22642169411_b9f5d229f3_b.jpg" width="1024" alt="Lairig an Laoigh"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22642351271/in/album-72157659722709595/" title="Loch Avon"><img src="https://farm1.staticflickr.com/586/22642351271_69ccc60170_b.jpg" width="1024" alt="Loch Avon"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22631145065/in/album-72157659722709595/" title="Cloud over the Shelter Stone"><img src="https://farm6.staticflickr.com/5782/22631145065_01dfbfd9f3_b.jpg" width="1024" alt="Cloud over the Shelter Stone"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22605237606/in/album-72157659722709595/" title="Strath Nethy"><img src="https://farm1.staticflickr.com/777/22605237606_55f676b50b_b.jpg" width="1024" alt="Strath Nethy"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22617727992/in/album-72157659722709595/" title="Loch Avon and the Saddle"><img src="https://farm6.staticflickr.com/5677/22617727992_6812584fb9_b.jpg" width="1024" alt="Loch Avon and the Saddle"></a>
+ 
+From the Saddle I turned and dropped down a muddy, blocky path to the east end of the loch where I found a nice place to stop for a proper lunch. 
+
+<a href="https://www.flickr.com/photos/black_friction/22605331036/in/album-72157659722709595/" title="Loch Avon"><img src="https://farm6.staticflickr.com/5628/22605331036_b65b8b9d8d_b.jpg" width="1024" alt="Loch Avon"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22605352246/in/album-72157659722709595/" title="End of Loch Avon"><img src="https://farm6.staticflickr.com/5665/22605352246_e9affff2ab_b.jpg" width="1024" alt="End of Loch Avon"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22605423796/in/album-72157659722709595/" title="Loch Avon"><img src="https://farm1.staticflickr.com/747/22605423796_3a241daf95_b.jpg" width="1024" alt="Loch Avon"></a>
+
+It was utterly still and silent and even the midges were less persistent here as I sat gazing out over the glassy waters.
+
+<a href="https://www.flickr.com/photos/black_friction/22008715674/in/album-72157659722709595/" title="Loch Avon"><img src="https://farm6.staticflickr.com/5754/22008715674_c46e7eea58_b.jpg" width="1024" alt="Loch Avon"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22605516366/in/album-72157659722709595/" title="Loch Avon"><img src="https://farm6.staticflickr.com/5707/22605516366_e8efd65f5b_b.jpg" width="1024" alt="Loch Avon"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22010444023/in/album-72157659722709595/" title="Towards Shelter Stone Crag"><img src="https://farm6.staticflickr.com/5624/22010444023_da860dd09a_b.jpg" width="1024" alt="Towards Shelter Stone Crag"></a>
+
+A bunch of folks with large backpacks came down from the Saddle and crossed the infant River Avon behind me. I stayed a while longer, wandering up and down the beach before finally packing up and setting off back to the eastward path.
+
+<a href="https://www.flickr.com/photos/black_friction/22008920114/in/album-72157659722709595/" title="Outflow of Loch Avon"><img src="https://farm6.staticflickr.com/5693/22008920114_ef97e9de18_b.jpg" width="1024" alt="Outflow of Loch Avon"></a>
+ 
+This follows the north bank of the River Avon and was very boggy and unpleasant in places. The views to the big hills around Loch Avon receded behind me and ahead there were the rolling shoulders of Beinn a’ Bhuird and Ben Avon beyond the remnants of the glacial moraine above the river.
+
+<a href="https://www.flickr.com/photos/black_friction/22443772690/in/album-72157659722709595/" title="Looking down the infant River Avon"><img src="https://farm1.staticflickr.com/705/22443772690_6b1602300e_b.jpg" width="1024" alt="Looking down the infant River Avon"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22642961341/in/album-72157659722709595/" title="River Avon"><img src="https://farm6.staticflickr.com/5653/22642961341_de022400fb_b.jpg" width="1024" alt="River Avon"></a>
+ 
+As I neared the ford of Avon and the refuge I spotted the backpackers setting up their tents on top of the moiraine. At the shelter I stopped for a nosy about the recently refurbished interior and check out the crossing of the river which looked fairly easy today. 
+
+<a href="https://www.flickr.com/photos/black_friction/22443878580/in/album-72157659722709595/" title="Approaching the Fords of Avon"><img src="https://farm6.staticflickr.com/5651/22443878580_6ea7cf38d6_b.jpg" width="1024" alt="Approaching the Fords of Avon"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22009192904/in/album-72157659722709595/" title="Fords of Avon Refuge"><img src="https://farm1.staticflickr.com/600/22009192904_8a70743b16_b.jpg" width="1024" alt="Fords of Avon Refuge"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22618370812/in/album-72157659722709595/" title="Inside the Fords of Avon Refuge"><img src="https://farm6.staticflickr.com/5637/22618370812_7e0defa14d_b.jpg" width="1024" alt="Inside the Fords of Avon Refuge"></a>
+
+Then I turned my back on the Avon and picked up the Lairig an Laoigh track heading north. A short while after the track crossed the Allt Dearg and then I left the path to climb up the southwestern shoulder of the Corbett Creag Mhor.
+
+<a href="https://www.flickr.com/photos/black_friction/22009267414/in/album-72157659722709595/" title="Allt Dearg and Bynack More"><img src="https://farm6.staticflickr.com/5646/22009267414_64f8e22ebe_b.jpg" width="1024" alt="Allt Dearg and Bynack More"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22009952384/in/album-72157659722709595/" title="Fords of Avon"><img src="https://farm1.staticflickr.com/626/22009952384_b2ae565aa6_b.jpg" width="1024" alt="Fords of Avon"></a>
+ 
+The initial boggy, steep ground relented and I found a stony but easy angled rise up to the first of several rocky tops on this long south-north running hill. The next one was the high point, crowned by a tor. 
+
+<a href="https://www.flickr.com/photos/black_friction/22619697222/in/album-72157659722709595/" title="Bynack More from Creag Mhor"><img src="https://farm1.staticflickr.com/741/22619697222_8f74a15fba_b.jpg" width="1024" alt="Bynack More from Creag Mhor"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22445343660/in/album-72157659722709595/" title="Feith Bhuidhe from Creag Mhor"><img src="https://farm1.staticflickr.com/730/22445343660_dfd84787e8_b.jpg" width="1024" alt="Feith Bhuidhe from Creag Mhor"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22445361350/in/album-72157659722709595/" title="Summit of Creag Mhor"><img src="https://farm6.staticflickr.com/5798/22445361350_7669649597_b.jpg" width="1024" alt="Summit of Creag Mhor"></a>
+
+On the way across to it I came across a small shelter stone which had been augmented with a dry stone wall outside it – very cosy. I reached the summit, scrambling up the final granite section to be greeted by expansive views across the eastern Cairngorms. The earlier threat of sunshine had failed to materialise and it felt cooler now despite the continuing lack of wind.
+
+<a href="https://www.flickr.com/photos/black_friction/22633750035/in/album-72157659722709595/" title="From the summit of Creag Mhor"><img src="https://farm1.staticflickr.com/675/22633750035_9c5123ed19_b.jpg" width="1024" alt="From the summit of Creag Mhor"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22633468145/in/album-72157659722709595/" title="East from Creag Mhor"><img src="https://farm1.staticflickr.com/750/22633468145_43efe9e8b1_b.jpg" width="1024" alt="East from Creag Mhor"></a>
+ 
+I left the top and rapidly dropped down an increasingly steep slope westward back to the Lairig track, an easy landmark as it wound brightly amongst the dull, brown landscape. As I reached the ford crossing of the upper Glasath a couple came down with backpacking packs on.
+
+<a href="https://www.flickr.com/photos/black_friction/22011131994/in/album-72157659722709595/" title="Glasath"><img src="https://farm1.staticflickr.com/764/22011131994_5971ec4def_b.jpg" width="1024" alt="Glasath"></a>
+ 
+After saying hello to them I followed the path up the hill they had descended, finding myself walking along below the summit ridge of Bynack More. The path dipped down at the crossing of the Uisge Dubh Poll a' Choin and then rose again back up to meet the Munro track. It was peaceful on this section, looking down to the head of the Caplich water and a vast area of uninhabited land leading the eye towards the distant hills around Glenlivet and the Ladder area. As I stood looking out on this a phalanx of geese, in a huge V, passed by, their honking a distant but unmistakable sound of autumn.
+
+<a href="https://www.flickr.com/photos/black_friction/22634088945/in/album-72157659722709595/" title="The Lairig an Laoigh Track"><img src="https://farm6.staticflickr.com/5731/22634088945_2ac984d0bb_b.jpg" width="1024" alt="The Lairig an Laoigh Track"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22620682432/in/album-72157659722709595/" title="On the Lairig an Laoigh"><img src="https://farm6.staticflickr.com/5718/22620682432_ca4abc204a_b.jpg" width="1024" alt="On the Lairig an Laoigh"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22011899454/in/album-72157659722709595/" title="Geese"><img src="https://farm6.staticflickr.com/5774/22011899454_d550221485_b.jpg" width="1024" alt="Geese"></a>
+
+Back at the meeting of the tracks I had a final snack break and then made my way off the hill. The constructed track made going easy and I was overtaken by a couple of hillrunners as I was making my way down. The light slowly changed as the afternoon advanced. The midges were still out by the Nethy so I headed for Ryvoan and a final stop by the still waters of An Lochan Uaine.
+
+<a href="https://www.flickr.com/photos/black_friction/22013535843/in/album-72157659722709595/" title="Towards Nethy Bridge"><img src="https://farm1.staticflickr.com/751/22013535843_b7db597194_b.jpg" width="1024" alt="Towards Nethy Bridge"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22634732465/in/album-72157659722709595/" title="Into Strath Nethy"><img src="https://farm6.staticflickr.com/5709/22634732465_f99568bea7_b.jpg" width="1024" alt="Into Strath Nethy"></a>
+
+<a href="https://www.flickr.com/photos/black_friction/22621257062/in/album-72157659722709595/" title="An Lochan Uaine"><img src="https://farm1.staticflickr.com/778/22621257062_0461ffe726_b.jpg" width="1024" alt="An Lochan Uaine"></a>
+ 
+I took a slightly different route back to the car which sensible avoided any fording of the Allt Mor. As I was walking along through the forest I was thinking about rewilding and the exciting possibility of glimpsing a lynx through the trees. Just then there was a crackling of branches and a dark shape ran across the path in front of me. My heart started pounding as I crept cautiously forward but when I reached the same point a look into the trees to the left showed the bounding shape of a deer disappearing off into the woods.
+
+<a href="https://www.flickr.com/photos/black_friction/22012040074/in/album-72157659722709595/" title="Geese"><img src="https://farm1.staticflickr.com/777/22012040074_e36fc7acfd_b.jpg" width="1024" alt="Geese"></a>
+ 
+A mountain biker overtook me near the car park and after a final stroll through the Rothiemurchas I was back for just after 6pm. A couple of hours later and I was back in Aberdeen, tucking into a fish supper with a bottle of beer and a feeling of great satisfaction after a long day in the Cairngorms.

@@ -1,0 +1,364 @@
+Title: Carn an Righ Wild Camp Part 1
+Date: 2011-04-17 22:47:34
+Modified: 2011-04-17 22:47:34
+Category: The Cairngorms
+Tags: munro
+Slug: carn-an-righ-wild-camp-part-1
+Author: Nick Bramhall
+
+**Saturday 16th April - The Long Walk To The High Hill Of The King**
+
+
+
+**Distance: 25.2km  
+Ascent:  1,376m  
+Time: 6hrs 39mins  
+Hills: Carn Liath (818m), Buachaille Breige (745m)  
+Weather: Early cloud and wind gradually giving way to bright, warm sunshine. Cloud came in later but hardly any wind in the evening.  
+Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/353)**
+
+
+
+Saturday evening. The sun has slunk below the horizon, ashamed of its lack of show. Clouds drift lazily through a dark sky. Somewhere near the tent a snuffling is heard, a deer or sheep tugging gently at the tussocky grass I'm camped on. By the time I look out it has gone. Back inside, I draw the sleeping bag tight around my face and lay back, listening to the burn murmuring gently to my right. Life is good.
+
+
+
+[![Full Moon Shines Through](http://farm6.static.flickr.com/5222/5636048786_e1f6e8f30c_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636048786)
+
+<!--more-->
+
+The day  began with an early start, not to get to the hills this time, but to watch the Grand Prix qualifying session and make some last minute food choices for the trip ahead. The sunlight streaming through the window was a good sign, as was the upgraded weather forecast on the MWIS site that was now promising 90% chance of cloud free Munros and a negligible wind on Sunday. I transferred the rain gear from my main bag into the car bag and never gave it another thought thereafter.
+
+
+
+[![Fully loaded Osprey rucksack](http://farm6.static.flickr.com/5110/5635403437_4805095194_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635403437)
+
+
+
+The lazy start saw me leaving Aberdeen at 9:15, and enjoying a sunny drive down Deeside, despite some of the usual Saturday drivers getting out and about. This was compounded by getting caught up in the [Granite City Rally](http://www.granitecityrally.co.uk/) convoy, with a series of Lancers, Suburus and support vehicles taking it easy along the South Deeside Road. By the time I arrived at the car park at Inverey it was already busy with folk sorting out gear and bicycles. Handily for me, with all the preparation done at home (I was even wearing my socks and trail shoes), I was out of the car, on with the sack and off in just a minute or two. The sunshine in Aberdeen had faded under grey skies around Braemar with sullen clouds sitting over the Cairngorms. I wasn't deterred though as MWIS had promised a brightening day.
+
+
+
+[![Ready to start](http://farm6.static.flickr.com/5222/5635404173_26d00b30a6_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635404173)
+
+
+
+[![The bridge that wasn't there](http://farm6.static.flickr.com/5262/5635984420_9f9bf39453_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635984420)
+
+
+
+I had a slightly inauspicious start. A few weeks ago when planning this route I had decided to stay low initially and walk along the road to the Linn of Dee, then pick up the track to White Bridge before turning south towards the Tilt. However, during the week I had the map out again and changed my mind, deciding instead to cut across the hills to Bynack Lodge and so avoid the road walking section. I checked out the 1:25,000 map online which confidently marked a bridge across the Ey Water just up from the road and so dutifully trekked up to this point from the car park. Disaster! The bridge was gone. Checking the map it was going to be a long walk along the pathless east side of the burn but I decided to give it a go rather than backtracking to the car park. Luckily a reasonable looking path cut through the heather in the direction I was going so feeling a little more confident I followed this. It proved to be an enjoyable and dramatic route, keeping close to the edge of the gorge down which the Allt Cristie tumbles. The path continued for a good way, eventually becoming lost in boggier ground higher up. My luck continued though and I soon spotted a narrow point where it was easy to cross, followed by a short scramble up through dead trees to reach the main vehicle track.
+
+
+
+[![The Allt Cristie Mor](http://farm6.static.flickr.com/5185/5635406159_76a2a94265_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635406159)
+
+
+
+[![Top of the Battery](http://farm6.static.flickr.com/5149/5635406959_90353b5378_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635406959)
+
+
+
+[![Carn Mor](http://farm6.static.flickr.com/5262/5635987548_ea6713ddd8_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635987548)
+
+
+
+From this point it was a long but gradual ascent with the views gradually opening up until I arrived at the bealach below Carn Liath. A short diversion got me to the summit of this broad backed hill which is at Corbett height but lacks sufficient prominence to get on a list. It's a good vantage point for the main Cairngorms to the north, though they were largely shrouded in heavy clouds. 
+
+
+
+[![Cairngorms from Carn Liath](http://farm6.static.flickr.com/5307/5635988718_9513381452_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635988718)
+
+
+
+[![Beinn a' Ghlo from Carn Liath](http://farm6.static.flickr.com/5150/5635410841_47961ffd56_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635410841)
+
+
+
+[![Towards the Lairig Ghru](http://farm6.static.flickr.com/5144/5635991716_ccb78fe7eb_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635991716)
+
+
+
+The wind was cold and so I didn't pause long before heading off, following the contours around a boggy corner to get onto the broad connecting ridge running west to Buaichaille Breige. This was the first of three rounded bumps that I traversed, enjoying excellent views all around. In particular I got a good first sighting of Carn an Righ, the primary objective of this trip, as well as the northern end of Beinn a' Ghlo and the wilds of the Blair Atholl forest, south of the distinctive line of the Geldie.
+
+
+
+[![Carn an Righ](http://farm6.static.flickr.com/5147/5635994986_ce05c36232_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635994986)
+
+
+
+[![The Cairngorms and White Bridge](http://farm6.static.flickr.com/5226/5635994502_f8be8b042c_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635994502)
+
+
+
+[![The Allt an t-Sionnaich](http://farm6.static.flickr.com/5142/5635993790_a548543735_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635993790)
+
+
+
+At the end of the line of hills I came to a steep descent with views down to Bynack Lodge and along towards White Bridge. It wasn't exactly an ideal slope, particularly with a loaded backpack, but my plan was to cross the river here rather than try and get across further upstream, so I made my careful way down the heathery slopes. 
+
+
+
+[![The west top of Buachaille Breige](http://farm6.static.flickr.com/5301/5635416863_12b1ef6045_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635416863)
+
+
+
+[![The Geldie](http://farm6.static.flickr.com/5302/5635418823_9b7f7c101a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635418823)
+
+
+
+[![Looking to Bynack Lodge and An Sgarsoch](http://farm6.static.flickr.com/5182/5635996878_4d89722956_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635996878)
+
+
+
+
+
+As I was nearing the bottom a group of cyclists came along the track from the direction of Glen Tilt, all towing yellow carts behind them, and each one adorned with a yellow flag. It was a strange sight, and quite comical watching each of them try and get across the stream without dismounting. A couple made it but several of them got half way, swayed and faltered and ended up with damp feet. They regrouped and moved off as I approached the ford, able to pick my way across rocks without getting wet feet. Just up from here I came to the ruins of Bynack Lodge where I decided to stop for a spot of lunch. By this time faint blue patches were appearing in between breaks in the cloud and in the glen it was feeling much warmer.
+
+
+
+[![Ruins of Bynack Lodge](http://farm6.static.flickr.com/5263/5635420845_fdd5482a0d_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635420845)
+
+
+
+[![Besides the Bynack Burn](http://farm6.static.flickr.com/5183/5635422699_30f3e01ba7_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635422699)
+
+
+
+[![The Bynack Burn](http://farm6.static.flickr.com/5268/5635423363_f0cc3b6f49_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635423363)
+
+
+
+After a pleasant lunch of oatcakes, cheese and chorizo taken on the banks of the Bynack burn I wandered on, heading down the broad glen on a good track under increasingly blue skies. This is quite simply beautiful walking country with the hills climbing away on either side of the broad river. Behind me the clouds around the Cairngorms were lightening in colour. The vehicle track soon turned into a single footpath that kept to a good line above the floor of the glen and so was largely dry underfoot. A couple of boggy sections were easy to negotiate. 
+
+
+
+[![The track south](http://farm6.static.flickr.com/5109/5636005324_29ba12e02b_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636005324)
+
+
+
+[![North towards the Cairngorms](http://farm6.static.flickr.com/5103/5636006596_c184f50a1d_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636006596)
+
+
+
+[![The track above the Allt an t-Seilich](http://farm6.static.flickr.com/5308/5635427765_174763412d_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635427765)
+
+
+
+At a bend in the glen I turned to take a final look at the Cairngorms which I wouldn't see again until much later in the day. Ahead the view down the infant Tilt was dominated by the great Beinn a' Ghlo massif, the corries and ridges of Carn nan Gabhar, glimpsed through the narrow gorge of the Allt Garbh Buidhe looking positively Alpine under patchy blue skies.
+
+
+
+[![South to Beinn a' Ghlo](http://farm6.static.flickr.com/5266/5636009024_ce2d15c482_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636009024)
+
+
+
+[![Looking down the Allt Garbh Buidhe](http://farm6.static.flickr.com/5190/5635430387_b8af62ccc1_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635430387)
+
+
+
+[![Sron a' Bhoididh](http://farm6.static.flickr.com/5149/5636011062_285afebe6a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636011062)
+
+
+
+Before entering the gorge there is a section of straight grassy track which was dry and springy and in these conditions simply has to be one of the best footpaths in the country. The views and situation just beautiful. I lingered in the sunshine, listening to the gentle rippling of the stream and the occasional call of birds wheeling on the warming air. With no other person in sight, and the faint path the only mark of humanity, it was like stepping into Tolkien. I ambled on, humming a walking song.
+
+
+
+[![The perfect path](http://farm6.static.flickr.com/5261/5636011716_6e3129cb51_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636011716)
+
+
+
+[![Mountain stream](http://farm6.static.flickr.com/5147/5635433869_d18fc542fe_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635433869)
+
+
+
+[![Entering the gorge](http://farm6.static.flickr.com/5184/5636013952_05465baba2_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636013952)
+
+
+
+The path dropped steadily beside the tumbling river, held in by the steep enclosed walls. Beinn a' Ghlo came steadily closer until the walls relented, the river slowed to a more gentle pace. After passing the point where I would climb away from the Tilt I continued on just a short distance to visit the Tarf Falls. 
+
+
+
+[![Clearing skies](http://farm6.static.flickr.com/5150/5636015248_b3a91fc585_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636015248)
+
+
+
+[![The Allt Garbh Buidhe](http://farm6.static.flickr.com/5304/5635436419_04a2199d9a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635436419)
+
+
+
+[![The gorge of the Allt Garbh Buidhe](http://farm6.static.flickr.com/5141/5636016830_0da73a4f5d_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636016830)
+
+
+
+Here the River Tarf tumbles down from the high country in a series of dramatic falls before joining with the Tilt and heading south and deeper into Perthshire. A suspension bridge, built at the end of the 19th century, spans the Tarf and carries the path on its continuing course.
+
+
+
+[![Tarf Falls](http://farm6.static.flickr.com/5230/5635438841_11b9cabae1_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635438841)
+
+
+
+[![IMG_7294](http://farm6.static.flickr.com/5187/5636022506_861e61d89b_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636022506)
+
+
+
+[![IMG_7295](http://farm6.static.flickr.com/5145/5636023352_93f2b0054e_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636023352)
+
+
+
+This was as far as the Tilt was taking me though and I took the opportunity, after viewing the falls from the bridge, to relax for a few minutes on the stretch of springy turf north of the confluence. The sunshine was wonderfully warming, shimmering on the water and lighting up the new spring growth.
+
+
+
+[![Suspension Bridge](http://farm6.static.flickr.com/5263/5635440277_94401f6f5e_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635440277)
+
+
+
+[![IMG_7297](http://farm6.static.flickr.com/5104/5635444737_30cab43b18_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635444737)
+
+
+
+[![IMG_7293 (1)](http://farm6.static.flickr.com/5183/5636021914_327f91f3fe_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636021914)
+
+
+
+I retraced my steps, climbing back up the gorge and then following a path that branched off down to the Tilt where I picked a way across the swift river using rocks and partially submerged boulders. On the far bank I picked up a track that zig-zagged steeply up the far slope, climbing high above the narrow glen containing the Allt a' Ghlinne Mhoir. 
+
+
+
+[![Leaving Glen Tilt](http://farm6.static.flickr.com/5308/5635446245_dd74ce3bc3_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635446245)
+
+
+
+[![Westward toward the Tarf Hills](http://farm6.static.flickr.com/5103/5636026294_d6bae0d32e_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636026294)
+
+
+
+[![The Allt a' Ghlinne Mhoir](http://farm6.static.flickr.com/5267/5635447629_cd9e7ec7f5_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635447629)
+
+
+
+I started to come across a few sheep and then caught sight of Carn an Righ and Beinn Iutharn Mhor, now very close by. The track followed the glen until it turned sharply northward passing through several fences until I reached the collection of pink buildings at Fealar Lodge. There was a calamitous barking of dogs of all shapes and sizes from an outbuilding but there was no sign of human life. 
+
+
+
+[![Beinn Iutharn Mhor and Carn an Righ](http://farm6.static.flickr.com/5182/5635448397_4f605bc0f7_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635448397)
+
+
+
+[![Fealar Lodge](http://farm6.static.flickr.com/5228/5635449047_746761c57b_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635449047)
+
+
+
+[![Carn an Righ](http://farm6.static.flickr.com/5303/5635449813_710749b580_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635449813)
+
+
+
+I dropped down to the bridge across the Allt Geith Lair and followed the faint track that climbed up onto the Miadan Mor. The farm buildings were soon lost to sight and once again the high Cairngorms appeared over the northern hills. They were much clearer now although the clouds had once again started rolling in from the west.
+
+
+
+[![The Cairngorms](http://farm6.static.flickr.com/5106/5635451219_4d0abeca24_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635451219)
+
+
+
+[![Beinn a' Ghlo from the farmland near Fealar Lodge](http://farm6.static.flickr.com/5143/5636029920_cbd45ec345_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636029920)
+
+
+
+[![Carn an Righ](http://farm6.static.flickr.com/5185/5636031416_2ce4de154c_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636031416)
+
+
+
+Once over the ridge below Carn Dearg I had a perfect view across to Carn an Righ and down into the quiet glen through which flowed the Allt a' Ghlinne Bhig. I immediately spotted the area of green turf that is described in [Phreerunner's 2009 TGO Challenge blog post](http://phreerunner.blogspot.com/2009/05/tgo-challenge-2009-day-10-wilderness.html) and also [Martin Rye's 2007 TGO Challenege report](http://summitandvalley.blogspot.com/2008/12/tgo-challenge-2007.html). I dropped down, following the path before cutting down through the heather to the banks of the burn. There was no obvious clear way across so I took off shoes and socks, rolled up my trousers and waded across at a fairly benign section. Cold it most certainly was!
+
+
+
+[![Beinn Iutharn Mhor](http://farm6.static.flickr.com/5269/5635454555_c7bc1dda49_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635454555)
+
+
+
+[![Carn an Righ](http://farm6.static.flickr.com/5110/5635455477_9afcae576f_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635455477)
+
+
+
+As promised in the reports the area was perfect for a camping spot - springy grass, flat, plenty of water and with great views in both directions.
+
+
+
+[![Beinn Iutharn Mhor](http://farm6.static.flickr.com/5181/5635456319_5f40a273c0_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635456319)
+
+
+
+[![Beinn a' Ghlo and Meall na Spionaig](http://farm6.static.flickr.com/5141/5636036806_4863255a27_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636036806)
+
+
+
+After checking out the areas immediately up and downstream I settled on an area just up from the very large area of tussock and pitched the tent. There was a slight breeze blowing and the clouds had obscured the sun. With the tent up and my gear unpacked I set about making dinner and then spent the best part of two hours relaxing, enjoying the changing light, exploring the area above the tent, and drinking coffee.
+
+
+
+[![Pitched tent](http://farm6.static.flickr.com/5266/5635457791_64f0c37fa8_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635457791)
+
+
+
+[![Terra Nova Laser Competition](http://farm6.static.flickr.com/5223/5636043032_e4f200b373_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636043032)
+
+
+
+[![Beinn Iutharn Mhor and Tent](http://farm6.static.flickr.com/5227/5635461429_3ae5f7ca0e_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635461429)
+
+
+
+[![Spot the tent](http://farm6.static.flickr.com/5108/5636044754_ddb1242f20_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636044754)
+
+
+
+[![Optimus Crux Stove and Titantium Pot](http://farm6.static.flickr.com/5184/5636045514_3bcacdcd9f_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636045514)
+
+
+
+[![Tent besides the Allt a' Ghlinne Bhig](http://farm6.static.flickr.com/5262/5636038238_dfcb53a4b8_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636038238)
+
+
+
+The sun sank into the clouded west without a show and as it got chillier I retired to the tent to listen to a little music before turning in for the night. 
+
+
+
+[![Looking west near sunset](http://farm6.static.flickr.com/5310/5635467973_2ddc4163f7_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635467973)
+
+
+
+[![Tent, late evening](http://farm6.static.flickr.com/5229/5636048368_cc3db38b00_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636048368)
+
+
+
+I didn't get a perfect night's sleep, waking on occasion as the temperature changed and my body readjusted. I got out of the tent at around 2am. By this time the clouds had begun to part and the Full Moon was shining brightly, illuminating the landscape with its magical, silvery light. I spent a few minutes wrapped up in my down vest taking some pictures and looking at the stars. It was silent except for the river.
+
+
+
+[![Light Pollution](http://farm6.static.flickr.com/5190/5628330687_b406990b1a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5628330687)
+
+
+
+[![Beinn Iutharn Mhor](http://farm6.static.flickr.com/5229/5636049256_5f6b1c3b0e_b.jpg)](http://www.flickr.com/photos/53725815@N00/5636049256)
+
+
+
+[![Wild Camping](http://farm6.static.flickr.com/5066/5628331511_ac333213ac_b.jpg)](http://www.flickr.com/photos/53725815@N00/5628331511)
+
+
+
+Back in the tent I once again settled down, tossing and turning a little as my body grew accustomed to the air mattress. I remember last looking at my watch at 3:30am and the next thing I knew the sun was beginning to light up the inner and a new day was beginning.
+
+
+
+[![Starry starry skies](http://farm6.static.flickr.com/5270/5635469911_73653d0d62_b.jpg)](http://www.flickr.com/photos/53725815@N00/5635469911)
+
+
+
+[Continue to Part 2 of this wildcamping trip report](/blog/2011/04/carn-an-righ-wild-camp-part-2/).
