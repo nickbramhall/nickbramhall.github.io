@@ -54,11 +54,15 @@ DEFAULT_PAGINATION = 10
 # My Settings
 DISPLAY_PAGES_ON_MENU = True
 DISPLAY_CATEGORIES_ON_MENU = False
+DISPLAY_FEEDS_ON_MENU: True
 SUMMARY_MAX_LENGTH = 50
 SEARCH_BOX = True
 INDEX_SAVE_AS = 'blog/index.html'
 MENUITEMS = (('About', '/'), ('Blog', '/blog/'), ('Trips', '/reports/'),)
 MENUITEMS_MIDDLE = (('Archives', '/archives/'),)
+
+FEED_FEEDBURNER = 'co/syeE'
+
 
 ARTICLE_URL = 'blog/{date:%Y}/{date:%m}/{slug}/'
 ARTICLE_SAVE_AS = 'blog/{date:%Y}/{date:%m}/{slug}/index.html'
