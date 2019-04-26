@@ -90,5 +90,5 @@ EXTRA_PATH_METADATA = {
     'extra/favicon.png': {'path': 'favicon.png'},  # and this
     'extra/CNAME': {'path': 'CNAME'},
     #'extra/LICENSE': {'path': 'LICENSE'},
-    'extra/README.md': {'path': 'README.md'},
+    'extra/README': {'path': 'README'},
 }
