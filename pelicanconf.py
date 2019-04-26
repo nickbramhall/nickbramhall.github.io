@@ -59,7 +59,7 @@ SUMMARY_MAX_LENGTH = 50
 SEARCH_BOX = True
 INDEX_SAVE_AS = 'blog/index.html'
 MENUITEMS = (('About', '/'), ('Blog', '/blog/'), ('Trips', '/reports/'),)
-MENUITEMS_MIDDLE = (('Archives', '/archives/'),)
+MENUITEMS_MIDDLE = (('Archives', '/archives.html'),)
 
 FEED_FEEDBURNER = 'co/syeE'
 

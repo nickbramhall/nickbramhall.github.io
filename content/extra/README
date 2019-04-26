@@ -6,8 +6,19 @@
 ## Pelican Plug-Ins Used
 
 * summary
-* pelican-page-hierarchy
+* pelican-page-hierarchy - https://github.com/akhayyat/pelican-page-hierarchy
 
 ## Pelican Theme
 
 [pelican-octopress-theme](https://github.com/duilio/pelican-octopress-theme)
+
+## Useful Resources
+
+http://scottfitz.name/deploying-a-static-site-to-github.html
+https://rsip22.github.io/blog/create-a-blog-with-pelican-and-github-pages.html
+https://fedidat.com/20-pelican/
+https://stackoverflow.com/questions/31270373/how-to-add-a-favicon-to-a-pelican-blog
+
+## Future thoughts
+
+https://mcss.mosra.cz
