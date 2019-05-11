@@ -2,7 +2,6 @@ Title: Skye Weekend
 Date: 2008-06-02 20:36:39
 Modified: 2008-06-02 20:36:39
 Category: The Islands
-
 Tags: corbett, munro
 Slug: skye-weekend
 Author: Nick Bramhall

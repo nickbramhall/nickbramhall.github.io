@@ -2,7 +2,6 @@ Title: Lochnagar
 Date: 2008-04-13 12:59:27
 Modified: 2008-04-13 12:59:27
 Category: The Mounth
-
 Tags: munro
 Slug: lochnagar
 Author: Nick Bramhall

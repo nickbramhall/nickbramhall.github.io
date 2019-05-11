@@ -2,7 +2,6 @@ Title: The Midnight Walk (Kinlochewe to Poolewe)
 Date: 2008-06-24 20:16:12
 Modified: 2008-06-24 20:16:12
 Category: The Northwest Highlands
-
 Tags: 
 Slug: the-midnight-walk-kinlochewe-to-poolewe
 Author: Nick Bramhall

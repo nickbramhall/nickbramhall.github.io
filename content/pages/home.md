@@ -6,7 +6,7 @@ display_title: Hidden
 
 <p><a href="https://www.flickr.com/photos/black_friction/20788217660" title="Nick looking out across the western sea"><img src="https://farm6.staticflickr.com/5746/20788217660_b541ec383c_b.jpg" width="100%" alt="A hillwalker drinking a mug of hot chocolate whilst looking out across a landscape of sea and islands as the sun sets"></a></p>
 
-<p>I'm Nick Bramhall, a backpacker and hillwalker currently living in Aberdeen, Scotland. As well as being a <em>bagger</em> of the Munros (that delightfully quirky list of the two hundred and eighty-something Scottish hills over 3,000 feet), I also enjoy exploring the wilder, less visited corners of this beautiful country. The Mountain's Silhouette is a place for me to share my trips to the Scottish hills through words, photos and the occassional video.</p>
+<p>I'm Nick Bramhall, a backpacker and hillwalker currently living in Tillicoultry, Scotland. As well as being a <em>bagger</em> of the Munros (that delightfully quirky list of the two hundred and eighty-something Scottish hills over 3,000 feet), I also enjoy exploring the wilder, less visited corners of this beautiful country. The Mountain's Silhouette is a place for me to share my trips to the Scottish hills through words, photos and the occassional video.</p>
 
 <p>This site features a collection of <a href="/blog">illustrated trip reports</a> covering day hikes and wild camping trips in the mountains; my own lightweight <a href="/gear">gear lists</a> for different seasons; and a number of <a href="/category/articles">articles on books, gear and technology</a> related to the outdoors.</p>
 

@@ -2,7 +2,7 @@ Title: 'Book Review: The Wild Places by Robert Macfarlane'
 Date: 2011-02-08 22:03:48
 Modified: 2011-02-08 22:03:48
 Category: Articles
-Tags: book review
+Tags: book-review
 Slug: book-review-the-wild-places-by-robert-macfarlane
 Author: Nick Bramhall
 

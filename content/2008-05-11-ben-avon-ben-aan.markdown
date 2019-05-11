@@ -2,7 +2,6 @@ Title: Ben Avon (Ben A'an)
 Date: 2008-05-11 22:11:30
 Modified: 2008-05-11 22:11:30
 Category: The Cairngorms
-
 Tags: munro
 Slug: ben-avon-ben-aan
 Author: Nick Bramhall

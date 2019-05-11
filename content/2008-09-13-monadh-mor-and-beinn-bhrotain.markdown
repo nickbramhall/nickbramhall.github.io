@@ -2,7 +2,6 @@ Title: Monadh Mor and Beinn Bhrotain
 Date: 2008-09-13 20:16:40
 Modified: 2008-09-13 20:16:40
 Category: The Cairngorms
-
 Tags: munro
 Slug: monadh-mor-and-beinn-bhrotain
 Author: Nick Bramhall

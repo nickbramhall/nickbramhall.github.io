@@ -2,7 +2,6 @@ Title: Beinn Iutharn Mhor
 Date: 2008-08-18 23:37:09
 Modified: 2008-08-18 23:37:09
 Category: The Cairngorms
-
 Tags: munro
 Slug: beinn-iutharn-mhor
 Author: Nick Bramhall

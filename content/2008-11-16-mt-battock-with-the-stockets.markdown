@@ -2,7 +2,6 @@ Title: Mt Battock
 Date: 2008-11-16 23:22:22
 Modified: 2008-11-16 23:22:22
 Category: The Mounth
-
 Tags: corbett
 Slug: mt-battock-with-the-stockets
 Author: Nick Bramhall
