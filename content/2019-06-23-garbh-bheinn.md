@@ -10,7 +10,7 @@ _An afternoon ascent of the Corbett Garbh Bheinn on the Ardgour peninsula accomp
 
 <a  href="https://www.flickr.com/photos/black_friction/48134885566/in/album-72157709265661582/" title="Dramatic light over the Ballachulish Hills"><img src="https://live.staticflickr.com/65535/48134885566_7ce43763f3_b.jpg" width="1024" alt="Dramatic light over the Ballachulish Hills"></a>
 
-<!-- more -->
+<!--more-->
 
 **Date: 23rd June 2019  
 Distance: 9.5km  
