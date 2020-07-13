@@ -10,6 +10,8 @@ _A short autumn evening walk over Ben Cleuch and its neighbours in the Ochil Hil
 
 <a  href="https://www.flickr.com/photos/black_friction/48822952528/in/album-72157711215928402/" title="The Law and Andrew Gannel Hill"><img src="https://live.staticflickr.com/65535/48822952528_a7dc8fb0fe_b.jpg" width="1024" alt="The Law and Andrew Gannel Hill"></a>
 
+<!--more-->
+
 **Date: 23rd September 2019  
 Distance: 11.14km  
 Ascent: 786m  
