@@ -18,7 +18,7 @@ _An overnight backpacking trip around the Beinn Dearg group of four Munros and t
 Distance: 20.3km  
 Elevation: 1,654m  
 Hills: Beinn Dearg (Munro, 1,084m), Cona Mheall (Munro, 980m), Meall nan Ceapraichean (Munro, 977m), Eididh nan Clach Geala (Munro, 928m)    
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/482)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/482)**
 
 It's not often that you read the words "almost dead calm on the summits" but those words, or something very like them, appeared on [MWIS](http://www.mwis.org.uk) on Saturday afternoon and my plan for a backpack west-to-east through the Cairngorms was suddenly turned into a north western trip. I packed enough provisions for two nights but decided to see how I got on.
 
@@ -282,7 +282,7 @@ I was soon wrapped up in my cosy sleeping bag and after a couple of podcasts, an
 Distance: 23.4km (total: 43.7km)  
 Elevation: 712m (total: 2,366m)  
 Hills: Seana Bhraigh (Munro, 927m)    
-https://www.invertedworld.co.uk/trip/417**
+https://www.invertedworld.co.uk/hillwalking/trip/417**
 
 I slept well, though by the end of the night there was a distinctively chill feel even deep in my sleeping bag. At some point a breeze had gotten up and it wasn't until around 7am that I was awake enough to poke my head out for a look. The eastern sky was tinged with orange and a new day wasn't far off.
 

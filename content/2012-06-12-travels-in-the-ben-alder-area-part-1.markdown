@@ -12,7 +12,7 @@ Ascent:  1,099m
 Time: 6hrs 27min (total)  
 Hills: Carn Dearg (Munro), Sgor Gaibhre (Munro)  
 Weather: Chilly, overcast, strong northerly wind  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/374)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/374)**
 
 
 

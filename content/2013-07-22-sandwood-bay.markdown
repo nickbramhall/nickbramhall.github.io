@@ -14,7 +14,7 @@ My birthday has slowly turned into the quest for the perfect barbeque. Previousl
 
 You can imagine our suprise then when not only was it not lashing down with rain, but that the third weekend in July was to be the apex of a glorious heatwave that brought sunshine and high twenties to Scotland. Stepping out of the car to stretch our legs besides Loch More on the long drive from Aberdeen to Kinlochbervie was like walking into the south of France. It was hot, and the reflections in the loch attested to the lack of wind.
 
-**Route:  [View on OS Maps](https://www.invertedworld.co.uk/trip/392)**
+**Route:  [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/392)**
 
 [![Ben Stack from Loch More](http://farm6.staticflickr.com/5485/9370311995_9dc30b14fe_b.jpg)](http://flic.kr/p/fh2iin "Ben Stack from Loch More by Nick Bramhall, on Flickr")
 

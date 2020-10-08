@@ -18,7 +18,7 @@ Ascent: 551m
 Time: 2hrs 15mins  
 Hills: Ben Rinnes (Corbett, 841m)         
 Weather: Sunny with a cold northwesterly wind    
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/229)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/229)**
 
 A day off work with no plans and a grand looking weather forecast for the east side of the country. I decided to finally head into Moray and climb the Corbett of Ben Rinnes, a distinctive hill that stands slightly isolated from the higher hills of the Cairngorms.
 

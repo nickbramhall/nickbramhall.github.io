@@ -12,7 +12,7 @@ Ascent: 1034m
 Time: 5hrs 55mins (including stops)  
 Hills: Carn a'Ghille Chearr (710m), Creagan a'Chaise (722m)  
 Weather: Incredibly strong wind, some sunshine and cloud  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/341)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/341)**
 
 
 

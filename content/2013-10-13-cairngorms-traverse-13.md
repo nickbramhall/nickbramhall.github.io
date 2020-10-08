@@ -17,7 +17,7 @@ Distance: 23.02km
 Ascent: 1,539m  
 Hills: Derry Cairngorm [Munro]      
 Weather: A blustery cold wind but improving conditions with sunshine         
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/212)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/212)**
 
 It was bright and breezy at the Coire Cas car park below Cairn Gorm where our booting up antics provided plenty of entertainment for the tourists waiting to catch the funicular railway. The fine track leading southwestward was followed towards Coire an t-Sneachda providing excellent views across the Rothiemurchas forest, Loch Morlich and a more distant Aviemore. The sky to the north was blue with hazy cloud off in the distance whilst to our south grey clouds sat low over the Northern Corries.
 

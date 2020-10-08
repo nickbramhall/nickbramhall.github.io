@@ -12,7 +12,7 @@ Ascent: 426 m
 Time: 4hrs 05mins (including stops)  
 Hills: Meall Dubh (563m), The Coyles of Muick (601m)  
 Weather: Cloud, light snow showers, bitterly cold northerly wind  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/357)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/357)**
 
 
 

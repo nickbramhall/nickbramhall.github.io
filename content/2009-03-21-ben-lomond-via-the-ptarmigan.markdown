@@ -9,7 +9,7 @@ Author: Nick Bramhall
 **Time: 4hrs 50mins (including stops)  
 Distance: 7.3 miles  
 Munro: Ben Lomond (974m)  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/303)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/303)**
 
 
 

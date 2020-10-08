@@ -17,7 +17,7 @@ Distance: 26.96km
 Ascent: 1,746m  
 Hills: Grisedale Pike, Hopegill Head, Ladyside Pike, Whiteside, Grasmoor, Whiteless Pike, Wandope, Crag Hill, Sail, Outerside, Barrow  
 Weather: Hot, hot, hot. Early low mist burning off to give sunshine and a general haze   
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/232)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/232)**
 
 [![Public footpaths](http://farm6.staticflickr.com/5491/9302447121_dbbef710b9_b.jpg)](http://flic.kr/p/fb2trk "Public footpaths by Nick Bramhall, on Flickr")
 

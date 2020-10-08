@@ -14,7 +14,7 @@ Ascent: 933m
 Time: 4 hrs 30 mins  
 Hills: Creag na Caillich, Beinn nan Eanach, Meall Garbh, Meall nan Tarmachan (Munro)
 Weather: Early sunshine and breezy to later on low cloud and very strong winds
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/369)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/369)**
 
 A quick drive north east took us to Killin and up the road to our high starting point for the day. We passed the new and very busy Ben Lawers car park to reach the Tarmachan starting point which only had a couple of cars parked up at this relatively early hour. Although the clouds had earlier been stuck to the summits, we booted up in bright sunshine with a blustery breeze blowing the long grasses. 
 

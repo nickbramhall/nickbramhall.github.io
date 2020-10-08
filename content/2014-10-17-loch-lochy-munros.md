@@ -17,7 +17,7 @@ Distance: 18.57km
 Ascent: 1,230m  
 Hills: Meall na Teanga (Munro), Sron a' Choire Ghairbh (Munro)              
 Weather: Early mist clearing to give plenty of sunshine                 
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/416)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/416)**
 
 It was a happy bunch of people who assembled at the unofficial parking area near Kilfinnan Farm in the heart of the Great Glen. For Matt, Jenny and Brian this was to be their first outing in the Scottish hills. The day promised to be good, autumn sunshine spilling from behind clouds and mist clearing all but the highest tops. 
 

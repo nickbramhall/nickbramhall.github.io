@@ -14,7 +14,7 @@ Ascent: 1,572m
 Time: 28 hrs 30 mins  
 Hills: Beinn a’ Bhuird (Munro), Beinn a’ Chaorainn (Munro), Beinn Bhreac (Munro)  
 Weather: Predominantly sunny, very cold wind and icy temperatures  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/361)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/361)**
 
 [![Sunrise from Beinn a' Bhuird](http://farm9.staticflickr.com/8188/8126426001_699b229238_b.jpg)](http://flic.kr/p/do74k8 "Sunrise from Beinn a' Bhuird by Nick Bramhall, on Flickr")
 

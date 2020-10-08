@@ -11,7 +11,7 @@ Time: 5.5 hours (including breakfast)
 Munros: Broad Cairn, Cairn Bannoch  
 Start: Car Park at the Spittal of Glenmuick  
 Weather: Beautifully clear, cold start but later overcast
-Route:  [View on OS Maps](https://www.invertedworld.co.uk/trip/320)**
+Route:  [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/320)**
 
 
 

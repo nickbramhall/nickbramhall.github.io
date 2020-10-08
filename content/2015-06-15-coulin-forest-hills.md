@@ -18,7 +18,7 @@ _A overnight trip to the Coulin Forest taking in two Corbetts, two Munros and a 
 Distance: 37.55km  
 Elevation: 2,289m  
 Hills: An Ruadh-Stac (Corbett, 892m), Maol Chean-dearg (Munro, 933m), Sgor Ruadh (Munro, 962m), Fuar Tholl (Corbett, 907m)      
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/434)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/434)**
 
 ##Saturday 13th June
 

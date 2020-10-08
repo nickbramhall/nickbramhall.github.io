@@ -11,7 +11,7 @@ Distance: 8.79km
 Ascent: 920m  
 Munros: Stob Coire Raineach (925m), Stob Dubh (958m)  
 Weather: Early cloud and mist, clearing with sunshine later  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/138)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/138)**
 
 I wanted something short to round out my weekend in Glen Coe and after perusing a few reports and the maps, settled on the "wee Buchaille" or Buachaille Etive Beag as a good target. There were rumours of a very boggy approach but I am pleased to report that the NTS have completed their pathwork in this area and there is now a brilliant approach path and staircase all the way up the mountain. This now has to be one of the easiest and most approachable Munros for all abilities. It was so good that I made it up and down in just a shade over three hours and didn't see anyone until I was on my way back down! This was great as it gave me two empty summits.
 

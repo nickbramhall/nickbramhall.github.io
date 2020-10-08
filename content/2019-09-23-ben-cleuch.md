@@ -18,7 +18,7 @@ Ascent: 786m
 Time: 2.5hrs  
 Hills: Ben Cleuch (Graham)  
 Weather: Bright sunshine and a strong breeze  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/490)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/490)**
 
 It was one of those perfect late September afternoons, the sun warm and golden, the hills beckoning as I finished work for the day. I grabbed a flask of tea and headed out the door for a couple of hours strolling along the tops above the house.
 

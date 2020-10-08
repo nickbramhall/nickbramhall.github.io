@@ -18,7 +18,7 @@ _A overnight trip bagging the three Munros to the east of Loch Treig with a wild
 Distance: 32.10km  
 Elevation: 1,538m  
 Hills: Beinn na Lap (Munro, 935m), Chno Dearg (Munro, 1,046m), Stob Coire Sgriodain (Munro, 979m)      
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/435)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/435)**
 
 ##Saturday 15th August 2015
 

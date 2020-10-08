@@ -13,7 +13,7 @@ Distance: 34.66km
 Ascent: 1,917m  
 Hills:  Stuchd an Lochain (Munro), Sron a’ Choire Chnapanaich (Corbett), Meall Buidhe (Corbett), Meall Buidhe (Munro)  
 Weather: Mild air temperatures but snow underfoot, occasional breaks in high cloud.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/210)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/210)**
 
 A couple of years ago Fraser put up [his report of a weekend trip around Loch an Daimh](http://mcalisterium.wordpress.com/2011/04/26/loch-an-daimh-overnighter/) in Highland Perthshire and I immediately added the round to my to-do list. From this initial idea I spread out the map and picked out a slightly extended route that, rather than dropping to the end of the loch to camp as Fraser had, stayed high so that the addition of the two Corbetts was possible without much loss of height. I had a few vague ideas for camp spots but decided to see how far I got on the day and then make a final decision as to whether to camp higher up or find a more sheltered spot lower down.
 

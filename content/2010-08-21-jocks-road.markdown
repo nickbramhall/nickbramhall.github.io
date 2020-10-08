@@ -11,7 +11,7 @@ Ascent: 1000 m
 Time: 7hrs 37mins  
 Munros: Tom Buidhe (957m), Tolmount (958m)  
 Weather: Early light rain giving way to sunshine, very strong winds on top  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/338)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/338)**
 
 
 

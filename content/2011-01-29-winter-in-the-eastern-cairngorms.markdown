@@ -11,7 +11,7 @@ Ascent: 846 m
 Time: 7hrs 34mins (including stops)  
 Hills: Beinn a' Chaorainn (1082m) and Beinn Bhreac (931m)  
 Weather: Cloud sitting at around 950m most of the day. Very little wind. Later sun breaking through to give clear tops as afternoon ended.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/359)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/359)**
 
 
 

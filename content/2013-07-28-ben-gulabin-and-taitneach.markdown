@@ -17,7 +17,7 @@ Distance: 28.4km
 Ascent: 1,240m  
 Hills: Ben Gulabin [Corbett], Carn a'Gheoidh [Munro]  
 Weather: Pleasant sunshine early on but increasingly cloudy with a bitter wind on the summits     
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/205)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/205)**
 
 Ben Gulabin is one of those hills I’ve seen a dozen times but always put off walking up it, thinking of it as something to save for a short winter day or when heading to hills further afield. In the end though I was casting around for a new hill and a glen that I hadn’t explored in a few years; Gleann Taitneach near the Spittal of Glenshee filled the criteria, last visited on a very wet day in April 2009, and Ben Gulabin would provide a new hill in the area.
 

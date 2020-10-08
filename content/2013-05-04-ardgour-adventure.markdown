@@ -13,7 +13,7 @@ Distance: 50.92km
 Ascent: 2,020m  
 Hills:  Meall nan Damh (Graham), Sgurr Ghiubhsachain (Corbett), Stob a'Bhealach an Sgriodain [Druim Tarsuinn] (Corbett)  
 Weather: Changeable  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/242)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/242)**
 
 With just two weeks left until the start of the TGO Challenge I decided it was about time I got out and did some backpacking. Recent weekends have been taken up by a number of interesting diversions with trips to see family in Yorkshire at Easter, a few nights in London followed by a wedding in Norfolk and then taking visitors around the delights of Royal Deeside. All of this amounted to a lot of good food, drink and travel, but very little hiking and certainly no nights spent cooped up in a tent listening to the Scottish rain hammering down.
 

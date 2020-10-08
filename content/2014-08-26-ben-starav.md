@@ -18,7 +18,7 @@ _An overnight backpacking trip taking in the five Munros of the Ben Starav group
 Distance: 23.7km  
 Elevation: 1,550m  
 Hills: Beinn nan Aighenan (Munro: 933m), Ben Starav (Munro: 1,078m)    
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/421)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/421)**
 
 I pulled out of Tyndrum, rounding the sharp left hand bend in the road that climbs up into a narrow glen where the road, the railway and the West Highland Way all squeeze together. I noticed the Caledonian Sleeper pulling up the grade just beside me. Sadly all 3,200bhp of the Class 67 hauling it weren’t a match for the 74bhp of my Fiesta, zipping along with just me and my lightweight camping pack. An early getaway from Aberdeen had brought with it the reward of mostly quiet roads and I tootled past the waking campers, stretching and blinking in the bright morning sun, on the flats near the Inveroran Hotel just after 8am.
 

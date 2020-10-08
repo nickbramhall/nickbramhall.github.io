@@ -11,7 +11,7 @@ Author: Nick Bramhall
  Time: 7hrs 37mins  
  Munros: Bynack More (1090m), Cairn Gorm (1245m)  
  Weather: Hot sunshine, light breeze  
- Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/334)**
+ Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/334)**
 
 After what seemed like interminable weekends of rain, wind and general
 unpleasantness, yesterday’s weather was warm and sunny and so in the

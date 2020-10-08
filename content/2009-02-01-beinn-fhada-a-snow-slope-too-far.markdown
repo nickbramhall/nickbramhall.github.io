@@ -11,7 +11,7 @@ Time: 6.75 hours (incl stops)
 Weather: Perfect winter conditions, sub-zero, no clouds  
 Munros Attempted: Beinn Fhada  
 Munros Summited: None
-Route:  [View on OS Maps](https://www.invertedworld.co.uk/trip/290)**
+Route:  [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/290)**
 
 
 Another perfect morning in Kintail: the air icy and cold and the sky already a deep shade of blue as I ate my breakfast. The surface of Loch Duich was ruffled only by a pair of herons as I walked briskly along the side of the A87 to the turn off at Allt a' chruinn. Sgurr an Airgid was delighting in the feel of the morning sunlight on its snow-speckled upper reaches. 

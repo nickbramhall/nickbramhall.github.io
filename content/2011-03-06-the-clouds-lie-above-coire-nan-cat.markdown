@@ -11,7 +11,7 @@ Ascent: 1346m
 Time: 6hrs 45mins (including stops)  
 Hills: Meall Greigh (Munro, 1012m), Meall Garbh (Munro, 1118m), An Stuc (Munro, 1118m)  
 Weather: Dull, overcast conditions all day with barely any break in uniform grey cloud. Strong, icy wind on the tops  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/355)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/355)**
 
 
 

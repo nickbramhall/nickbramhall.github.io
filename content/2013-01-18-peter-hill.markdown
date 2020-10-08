@@ -14,7 +14,7 @@ Ascent: 632m
 Time: 5 hrs    
 Hills:  Peter Hill    
 Weather: High winds, snow, incredible windchill.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/200)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/200)**
 
 Breathing deeply into my pile and pertex collar tightly wrapped around my mouth and nose I trudged up the track, following a single pair of footprints up the snowy hillside. The sky was a deep, unblemished grey, like that in a black and white photograph. I paused a minute and looked back. There was no-one. 
 

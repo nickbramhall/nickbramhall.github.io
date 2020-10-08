@@ -12,7 +12,7 @@ Ascent: 1,486 m
 Time: 7hrs  
 Munros: Mt Keen  
 Weather: Cold, clear, some snow showers  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/330)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/330)**
 
 A sleepy bunch of Stockets emerged off the coach, bleary eyed, blinking in the March sunshine at the car park in Glen Esk. Eventually two groups formed, one heading for Loch Lee and an exploration of the hills south of the glen, whilst the larger group took the path north and west into Glen Mark. The good track means this approach to Mount Keen is easier and shorter than the approach from the north and though I had heard some complaints about the scenery, the dark crags of Gilfumman and the snow-capped hills at the head of the Glen drew the eyes onwards.
 

@@ -17,7 +17,7 @@ Distance: 70.7km
 Ascent: 4,093m  
 Hills: Sgurr nan Each (Munro, 923m), Sgurr nan Clach Geala (Munro, 1,093m), Meall a' Chrasgaidh (Munro, 934m), Sgurr Mor (Munro, 1,110m), Beinn Liath Mhor Fannaich (Munro, 954m), Meall Gorm (Munro, 949m), An Coileachan (Munro, 923m), Sgurr Breac (Munro, 999m), A' Chailleach (Munro, 997m), Groban (Graham, 749m), Craig Rainich  (Corbett, 807m)     
 Weather: Mostly sunny with a cold, blustery wind at times. Misty in the mornings but generally improving    
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/437)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/437)**
 
 ###Tuesday 24th May
 

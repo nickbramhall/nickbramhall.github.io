@@ -14,7 +14,7 @@ Ascent: 1,827m
 Time: 10hr 24min  
 Hills: Angel's Peak (Munro), Cairn Toul (Munro), Devil's Point (Munro)  
 Weather: Early showers giving way to bright sunshine  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/365)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/365)**
 
 The opportunity to traverse a mountain range in a day is a rare one and is definitely one of the main reasons why I am a member of the [Stocket Hillwalking Club](http://www.stockets.org.uk). The club’s 2012 Cairngorm Traverse was an opportunity to cross the Cairngorms, either via the famous pass of the Lairig Ghru, or going across the Cairn Toul massif to bag the Devil’s Peak, Cairn Toul and Sgorr an Lochain Uaine. Despite the fact that I had been up in this area [wild camping just a couple of weeks before](/blog/2012/08/breaking-the-curse-of-braeriach/) I was still thoroughly looking forward to this day out, especially as the weather promised to be rather good. Would it be, as with Braeriach on the last occasion, third time lucky for a summit view from Cairn Toul?
 

@@ -13,7 +13,7 @@ Distance: 23km
 Time: 6 hours  
 Ascent: 800m  
 Hills: Brown Cow Hill (Corbett, 829m), Meikle Gael Charn (Corbett Top, 802m)  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/379)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/379)**
  
 Saturday dawned bright and chilly in Aberdeen. Though the preceding few days had been mild to the point where I had dropped down to just a windshirt for the walk to work, the weekend forecast was a little less promising. In particular MWIS was predicting very strong winds (gusts to 80mph) for Sunday afternoon. With this in mind I came up with a plan that gave me an opportunity to head up onto the plateau of Ben Avon, most eastern of the big Cairngorm hills, on Sunday morning in the hope of catching a break in the weather. To get there I would camp in Glen Gairn, to the south of a winding route that takes you up onto the plateau. Another consideration was the sky show promised for Saturday evening with the Moon, Venus and Jupiter all in close proximity in the west after sunset.
 

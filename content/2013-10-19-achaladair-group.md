@@ -17,7 +17,7 @@ Distance: 39.68km
 Ascent: 2,235m  
 Hills: Beinn Dorain [Munro], Beinn an Dothaid [Munro], Beinn Achaladair [Munro], Beinn a' Chreachain [Munro], Beinn Mhanach [Munro]        
 Weather: Early cloud inversion clearing to sun and showers throughout the day
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/248)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/248)**
 
 Staying over at the Youth Hostel in Crianlarich meant that, on Saturday morning, rather than a 3 hour drive from Aberdeen leaving home at 5am, I had a 15 minute drive leaving the hostel at 7:30am. It was a little misty down in Crianlarich but the sun was shining in Tyndrum when I passed through a few minutes later. By the time I pulled into the scrappy layby near the entrance to Auch Estate a few minutes south of the Bridge of Orchy it was thick mist and very poor visibility.
 

@@ -18,7 +18,7 @@ Ascent: 1,004m
 Time: 5hrs 20mins  
 Hills: Ben Vorlich (Munro, 943m)         
 Weather: Very strong easterly wind, cloud on top with sunshine developing
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/465)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/465)**
 
 It was a cool start to the day driving through Stirling and west to my Aunt and Uncle's house. The MWIS forecast was for a bright day with a very strong easterly wind. With plenty of hills to choose from in the Arrochar area we settled on Ben Vorlich as a good option with the majority of the climbing being done on the west side of the hill which would be sheltered from the worst of the wind.
 

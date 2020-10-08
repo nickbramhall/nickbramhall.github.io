@@ -18,7 +18,7 @@ _An overnight trip to Glen Affric to climb Sgùrr nan Ceathreamhnan my 200th Mun
 Distance: 51.19km  
 Elevation Gain: 2,145m  
 Hills: An Socach (Munro, 921m), Sgùrr nan Ceathreamhnan (Munro, 1,151m), Sgurr Gaorsaic (Corbett, 839m)  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/453)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/453)**
 
 ##Saturday 17th October 2015
 

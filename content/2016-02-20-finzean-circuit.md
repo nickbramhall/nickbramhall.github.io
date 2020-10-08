@@ -17,7 +17,7 @@ Distance: 23.9km
 Ascent: 862m  
 Hills: Tom's Cairn, Peter Hill        
 Weather: Sunny with a strong westerly wind and occassional snow shower  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/440)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/440)**
 
 Other than a stroll on the North York Moors at Christmas and a quick wander around Glencoe Lochan back in January I've had a fairly quiet winter walking wise. Weather and general busyness have both got in the way of outings and so this weekend I was determined to get out into the countryside.
 

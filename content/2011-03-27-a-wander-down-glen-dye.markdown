@@ -11,7 +11,7 @@ Ascent: 922m
 Time: 6hrs 18mins  
 Hills: Mount Battock (778m, Corbett), Clachnaben (589m)  
 Weather: Bright spring sunshine, cooling breeze, later cloud and passing rain showers  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/358)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/358)**
 
 
 

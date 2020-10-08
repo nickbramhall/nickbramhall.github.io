@@ -16,7 +16,7 @@ Ascent:  1522m
 Time: 6hrs 16mins  
 Hills: Beinn Ghlas (Munro, 1,103m), Ben Lawers (Munro, 1,214m), An Stuc (Munro, 1,118m)  
 Weather: Cloud inversion, cold, sunny, clear skies, very light wind  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/342)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/342)**
 
 
 

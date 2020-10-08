@@ -12,7 +12,7 @@ Ascent: 1219m
 Time: 6hrs 56mins (including several long stops)  
 Hills: The Law (638m), Ben Cleuch (Graham, New Donald, 721m), Ben Buck (679m), Blairdenon Hill (631m), Dumyat (Sub-2000 Marilyn, 418m)  
 Weather: Early dull overcast skies clearing to bright sunshine, strong icy wind, later cloud again  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/349)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/349)**
 
 
 

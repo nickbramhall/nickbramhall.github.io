@@ -13,7 +13,7 @@ Distance: 10.26km
 Ascent: 65m  
 Hills:  None  
 Weather: Very cold, snow and sleet.    
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/224)**  
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/224)**  
 
 [![Loch Kinord](http://farm9.staticflickr.com/8246/8565585230_cdb540fb74_b.jpg)](http://flic.kr/p/e3US4Y "Loch Kinord by Nick Bramhall, on Flickr")
 

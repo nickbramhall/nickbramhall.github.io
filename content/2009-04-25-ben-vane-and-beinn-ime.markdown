@@ -12,7 +12,7 @@ Ascent: 1520m (4,988ft)
 Munros: Ben Vane (916m), Beinn Ime (1011m)  
 Meteorology: Hazy sunshine, cool wind on summits, later heavy showers  
 Attendees: Many, but myself, Dave and Peter completed the walk
-Route:  [View on OS Maps](https://www.invertedworld.co.uk/trip/288)**
+Route:  [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/288)**
 
 
 A weak sun lights the dull, grey waters of Loch Lomond as the Inversnaid ferry plies across from a far shore wreathed in cloud. The long drone of a piper starts as the guests climb the jetty up to the Inveruglas visitor center where a car park is already struggling to contain the early starts. Here we are, adding to the multitudes, booting up and then heading across the road towards the Loch Sloy turning. The Sloy hydro station stands silent as we troop down the road, a multicolour line of troops marching to do battle with the hill.

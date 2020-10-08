@@ -17,7 +17,7 @@ Distance: 28.7km
 Ascent: 1,356m  
 Hills: Conachcraig, Lochnagar          
 Weather: Sunny with a cold northwesterly wind    
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/195)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/195)**
 
 Conachcraig always seems to have slipped through the gaps in my planning. A Corbett conveniently positioned above the car park at Glen Muick, it had previously been slated for an easy winter ascent. Latterly I'd been thinking about summit camping up there to get some sunrise photos of the light hitting the cliffs of Lochnagar. Now though I was looking for a straightforward option not too far from home and decided to put the fancy plans on hold and just go for it. Rather than the straightforward ascent from Glen Muick I deicded to try a different approach to the hill, one I had seen on a wintry daywalk a few January's ago.
 

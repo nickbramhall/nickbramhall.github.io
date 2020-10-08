@@ -18,7 +18,7 @@ Ascent: 1,028m
 Time: 4hrs  
 Hills: Garbh Bheinn (Corbett)  
 Weather: Hot and sunny to begin with but clouding over later    
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/479)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/479)**
 
 It was just a short drive from our holiday cottage around to the parking area near Inversanda Bay which forms the access point for the standard route up Garbh Bheinn. It was a hot June day and the sun was beating down as we emerged from the trees by the river and made our way across the undulating ground to the foot of Sron a' Garbh Choire Bhig. I was a little worried whether we would find enough water on the long pull up the Sron but this proved unfounded as Cob managed to find and sample just about every single pool and puddle of water on the way up.
 

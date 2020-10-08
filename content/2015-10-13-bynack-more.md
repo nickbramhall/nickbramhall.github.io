@@ -17,7 +17,7 @@ Distance: 35.9km
 Ascent: 1,303m  
 Hills: Bynack More (Munro, 1,090m), Creag Mhor (Corbett, 895m)        
 Weather: Sunny with a cool breeze and occassional shower                       
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/92)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/92)**
 
 A blush pink sky rapidly turned into a fiery sunrise as the red sun rose through a pale mist clinging to the rooftops and spires of Aberdeen. Early on Saturday it was a quick drive around to Coylumbridge and then along the ski centre access road passing the utterly still waters of Loch Morlich, the northern corries reflected in its dark waters, before pulling into the Allt Mor parking area just beyond the Glenmore Lodge turning.
 

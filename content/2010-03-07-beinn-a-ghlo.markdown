@@ -11,7 +11,7 @@ Time: 6hrs 54mins (including brief stops)
 Ascent: 5,164ft  
 Munros: Carn Liath (975m), Braigh Coire Chruinn-bhalgain (1070m), Carn nan Gabhar (1129m)  
 Weather: Fairly mild, little wind, cloud base at around 850m  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/327)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/327)**
 
 Another early start from Aberdeen this morning, but for a change the thermometer wasnâ€™t in the red, but instead, at 5:30am with light cloud cover, showed +5! Spring is truly on its way and it was a much more straightforward drive without the worry of ice and snow. After a quick run up the A9 I turned off, passed through a sleeping Blair Atholl and gently climbed up on the single track road, past the old Bridge of Tilt and out across open farm land to the parking point at the junction up to Monzie farm.
 

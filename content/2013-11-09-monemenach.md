@@ -17,7 +17,7 @@ Distance: 22.67km
 Ascent: 980m  
 Hills: Monamenach [Corbett]          
 Weather: Cold and clear all day. Strong wind on the tops.             
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/407)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/407)**
 
 The original plan for this walk had been a through walk starting in Glen Isla and crossing across the hills to Glenshee. Sadly our coach compnay, used for several years by the hillwalking club, went under during the week and so we hastily rearranged the walk to suit a car based outing. 
 

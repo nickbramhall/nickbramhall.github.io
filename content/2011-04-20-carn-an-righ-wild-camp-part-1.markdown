@@ -15,7 +15,7 @@ Ascent:  1,376m
 Time: 6hrs 39mins  
 Hills: Carn Liath (818m), Buachaille Breige (745m)  
 Weather: Early cloud and wind gradually giving way to bright, warm sunshine. Cloud came in later but hardly any wind in the evening.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/353)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/353)**
 
 
 

@@ -14,7 +14,7 @@ Ascent: 1,077m
 Time: 6 hrs 30 mins  
 Hills:  Carn na Bruar, Cook’s Cairn (Graham), Corryhabbie Hill (Corbett)  
 Weather: Early sunshine giving way to cloudy but dry conditions. Very cold wind.    
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/376)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/376)**
 
 The car was cosily warm after the drive over from Aberdeen and it took until the sun crested the distant hills for me to reluctantly leave behind its easy comforts. The temperature showed a chilly −1<sup>o</sup>C. The grass crunched underfoot as I pulled on every conceivable item of warm clothing I had brought across with me and started on my way down the Livet Path.
 

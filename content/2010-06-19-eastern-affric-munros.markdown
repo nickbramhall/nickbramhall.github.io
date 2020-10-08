@@ -10,7 +10,7 @@ Author: Nick Bramhall
 Ascent: 7,000ft  
 Time: 9hrs 10mins  
 Weather: Brilliant sunshine, strong, cold northerly wind  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/332)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/332)**
 
 
 

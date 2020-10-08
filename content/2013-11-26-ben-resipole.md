@@ -17,7 +17,7 @@ Distance: 20.89km
 Ascent: 1,045m  
 Hills: Ben Resipol [Corbett]          
 Weather: Chilly start but clouding over with milder temperatures and rain later                 
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/410)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/410)**
 
 [![Dawn, Loch Linnhe](http://farm3.staticflickr.com/2828/12017624446_9bddf47c0f_b.jpg)](http://flic.kr/p/jiXt4u "Dawn, Loch Linnhe by Nick Bramhall, on Flickr")
 

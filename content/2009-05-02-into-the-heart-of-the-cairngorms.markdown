@@ -12,7 +12,7 @@ Ascent: 5000ft
 Time: 8hrs 15mins (including stops)  
 Munros: Carn a' Mhaim, Ben MacDui, Derry Cairngorm  
 Meteorology: May-like (rain, hail, snow, wind, sun in equal measure)
-Route:  [View on OS Maps](https://www.invertedworld.co.uk/trip/318)**
+Route:  [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/318)**
 
 
 

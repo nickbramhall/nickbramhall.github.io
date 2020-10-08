@@ -12,7 +12,7 @@ Ascent:  1,438m
 Time: 6hrs 54min  
 Hills: Ben Chaorach (Corbett, 818m), Cam Chreag (Corbett, 884m), Ben Challuim (Munro, 1,025m)  
 Weather: Early sunshine giving way to cloud. Very cold wind and low temperatures.   
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/373)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/373)**
 
 
 

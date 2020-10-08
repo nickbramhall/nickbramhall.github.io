@@ -13,7 +13,7 @@ Ascent:  1,384m (Day 1: 238m; Day 2: 1,144m)
 Time: 22hrs 29mins (Day 1: 2hrs 2mins; Day 2: 4hrs 25mins)  
 Hills: Stob Coire an Lochain (Munro Top, 1,239m), Braeriach (Munro, 1,296m)  
 Weather: Rain on and off for the duration. Low cloud, mist, mild temperatures and no wind.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/350)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/350)**
 
 
 

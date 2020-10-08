@@ -12,7 +12,7 @@ Time: 8hrs 30mins (including several stops)
 Ascent: 1,333m (4,373ft)  
 Munros: Carn Bhac (956m), Glas Tulaichean (1,051m)  
 Weather: Warm, chilly breeze at Munro height, sunny all day  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/331)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/331)**
 
 It was a dawn of bright promise over Aberdeen as both members of the Stocket Hillwalking Club and the infamous Cairngorm Club gathered on Mid-Stocket Road for the first 7am start of the season. The preceding days had been warm and sunny and there was optimism for a day free of snow-wading. It didn't turn out quite that way, but certainly the seasons are changing, the snow is finally melting and the heavy layers and crampons have been replaced by a need for wide-brimmed hats and copious amounts of sun cream and water.
 

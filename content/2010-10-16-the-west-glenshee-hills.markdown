@@ -11,7 +11,7 @@ Ascent: 897 m
 Time: 6hrs 24mins  
 Munros: Carn Aosda (917m), The Cairnwell (933m), Carn a' Gheoidh (975m)  
 Weather: Early cloud and hill fog improving to sunny spells later in the day. Very light but cold northerly wind.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/335)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/335)**
 
 The fact that I stumbled off a doorstep onto a cold, dark Aberdeen street at 6:30am on Saturday morning would perhaps give you the wrong impression of my Friday night. In fact, I had spent a perfectly civilised evening playing [board games](http://en.wikipedia.org/wiki/Carcassonne_(board_game)) and [eating sushi](http://www.yorokobibycj.co.uk/). The early start was eased by the fact that I only had to walk the ten minutes along to the meeting point for October's Stocket Hillwalking Club Saturday walk.
 

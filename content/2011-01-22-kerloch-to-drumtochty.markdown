@@ -12,7 +12,7 @@ Ascent: 746 m
 Time: 6hrs 58mins (including stops)  
 Hills: Kerloch (534m)  
 Weather: Beautifully clear and crisp winter's day  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/347)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/347)**
 
 
 

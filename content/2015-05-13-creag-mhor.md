@@ -17,7 +17,7 @@ Distance: 28.4km
 Ascent: 1,460m  
 Hills: Creag Mhor (Munro, 1,032m), Beinn Heasgarnich (Munro, 1,078m)      
 Weather: Sunny with a cool breeze and occassional shower                       
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/436)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/436)**
 
 A half decent forecast had me packing my bag for a return journey down to the southeast of the Highlands. Last year Rich and I [abandoned an attempt at circuiting the Mamlorn hills](http://tms.nickbramhall.com/blog/2014/03/glen-lochay/) around Glen Lochay. With just a day available (stormy weather was forecast to come in during the evening and set in for Sunday) I decided to focus my attention on the two Munros of Creag Mhor and Beinn Heasgarnich which sit on the north side of Glen Lochay, separating it from neighbouring Glen Lyon. These are bulky hills, craggy on their northern sides, separated by a low bealach but easy enough to combine. Despite recent snowfall and low temperatures I decided to leave boots, crampons and ice axe at home, figuring I was mostly avoiding north and eastern aspects and that the temperature was forecast to be fairly mild.
 

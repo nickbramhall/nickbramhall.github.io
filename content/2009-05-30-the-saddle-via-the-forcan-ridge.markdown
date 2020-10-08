@@ -12,7 +12,7 @@ Time: 8.5 hours (including lunch, snoozes, scrambling etc)
 Ascent: 5200ft  
 Munros: The Saddle, Sgurr na Sgine  
 Corbett: Ben a Crois Chaolais  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/322)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/322)**
 
 
 

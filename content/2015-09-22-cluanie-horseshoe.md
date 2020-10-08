@@ -18,7 +18,7 @@ _An overnight trip bagging the five Munros around Gleann na Ciche with a wild ca
 Distance: 48.03km  
 Elevation Gain: 2,344m  
 Hills: Mullach Fraoch-choire (Munro, 1,102m), A' Chraileag (Munro, 1,120m), Carn Ghluasaid (Munro, 957m), Sgurr nan Conbhairean (Munro, 1,109m), Sail Chaorainn (Munro, 1,002m), Carn a' Choire Ghairbh (Corbett, 865m)  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/trip/258)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/258)**
 
 ##Saturday 19th September 2015
 
