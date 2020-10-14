@@ -10,7 +10,7 @@ _An overnight backpacking trip taking in a Corbett and three Munros to the east 
 
 <a  href="https://www.flickr.com/photos/black_friction/50442386781/in/album-72157716327550832/" title="Sunshine and Showers from Tom Mor"><img src="https://live.staticflickr.com/65535/50442386781_430f760fab_b.jpg" alt="Sunshine and Showers from Tom Mor"></a>
 
-<!-- more -->
+<!--more-->
 
 **Date: 29-30th August 2020  
 Distance: 36.72km  
