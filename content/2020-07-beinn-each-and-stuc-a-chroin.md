@@ -1,6 +1,6 @@
 Title: Beinn Each and Stuc a' Chroin
-Date: 06-07-2020 08:18
-Modified: 06-07-2020 08:18
+Date: 07-06-2020 08:18
+Modified: 07-06-2020 08:18
 Category: The Southeast Highlands
 Tags: corbett, munro
 Author: Nick Bramhall
