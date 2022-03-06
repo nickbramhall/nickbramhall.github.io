@@ -13,7 +13,7 @@ Ascent: 1,218m
 Time: 4hrs 30min  
 Hills: Craig Maskeldie  
 Weather: A warm, humid summer's day with rain on and off  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/384)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/384)**
 
 Well, it had been several weeks since my last drenching in the Scottish hills. Saturday rolled around and I had a free afternoon so the bag was packed, sandwiches were made and I was heading down the road to pay another visit to the Angus Glens. Around this time last year my girlfriend and I had enjoyed a wander down Loch Lee and enjoyed views of the craggy hills which crowd in around the Water of Lee. We hadn't been up the hills on that occassion (there was a barbeque to enjoy, after all) and since those views I had been keen to get back and take in a few of the summits. Although I have a long route planned out I ended up just doing a short walk today, mainly because the weather really wasn't very enjoyable.
 

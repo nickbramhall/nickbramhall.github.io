@@ -12,7 +12,7 @@ Time: 5 hours
 Attendees: Me  
 Munros: Carn Gorm, Meall Garbh, Carn Mairg and Meall na Aighean  
 Weather: Sunny spells, cold gusting wind
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/311)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/311)**
 
 
 It's a wonderful feeling: leaving the house in brilliant sunshine, a hint of a frosty dawn still lingering in the air. The quiet roads were a joy and in no time at all I was off the A90 and winding my way through the backroads of first Angus and then Perthshire. A dash up a deserted A9 got me to Aberfeldy and then it was a matter of following the Glen Lyon/Bridge of Balgie signs until, having negotiated my way down the narrowest of single lane roads, I found myself at the car park below the telephone box in Invervar just a few minutes before 8:30am.

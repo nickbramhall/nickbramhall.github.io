@@ -17,7 +17,7 @@ Distance: 26.47km
 Ascent: 1,063m  
 Hills: The Stuic, Carn a'Choire Bhoidheach [Munro], Lochnagar [Munro]  
 Weather: Very warm with sunshine and incredibly clear views     
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/402)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/402)**
 
 There aren’t a lot of scrambles on the east coast but one of the better known ones is that of the Stuic buttress, on the north side of the White Mounth west of the main summit of Lochnagar. Whilst Lochnagar is typically accessed from the Glen Muick side of the hill I hadn’t yet explored the approach from the north west and so under sunny skies I parked up at Keiloch where there was already a busy car park at 8:30am on a Sunday morning.
 

@@ -18,7 +18,7 @@ _An overnight backpacking trip taking in the three Munros to the north of Loch M
 Distance: 34.37km  
 Elevation: 1,900m  
 Hills: Sgurr Choinnich (Munro, 999m), Sgurr a'Chaorachain (Munro, 1,053m), Maoile Lunndaidh (Munro, 1,005m)    
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/226)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/226)**
 
 ##Saturday 14th March 2015
 

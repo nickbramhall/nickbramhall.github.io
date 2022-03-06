@@ -17,7 +17,7 @@ Distance: 29.2km
 Ascent: 801m  
 Hills: Carn a' Mhaim [Munro]  
 Weather: Very cold, windy, snow storms  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/228)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/228)**
 
 After weeks of wind and rain had put a damper on any form of enjoyable winter hillwalking cabin fever was setting in and I was desperate to get out, even if getting up high wasn’t going to be all that practical. A loop walk I’ve wanted to do for a while now is the classic three glens walk from the Linn of Dee, heading through Glen Lui, Glen Luibeg and returning via Glen Dee. With a reasonable forecast for the Cairngorms I decided it was about time I got out and did something and so this route was chosen as a good way to cover some miles with the added bonus of a possible Munro if the conditions looked favourable. 
 

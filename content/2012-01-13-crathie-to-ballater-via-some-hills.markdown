@@ -12,7 +12,7 @@ Ascent:  562m
 Time: 5hrs 57mins  
 Hills: Sgor an h-Iolaire, Creag nam Ban, Creag Ghiubhais  
 Weather: Overcast and light rain showers. Some sunshine. Very strong winds on the tops.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/367)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/367)**
 
  
 

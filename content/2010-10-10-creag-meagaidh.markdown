@@ -11,7 +11,7 @@ Author: Nick Bramhall
  Time: 7hrs 12mins  
  Munros: Carn Liath (1006m), Stob Poite Coire Ardair (1053m), Creag Meagaidh (1130m)  
  Weather: Early cloud giving way to sunshine, very strong winds on top  
- Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/339)**
+ Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/339)**
 
 [![](http://farm5.static.flickr.com/4128/5072788516_3313cdca3d_b.jpg)](http://www.flickr.com/photos/53725815@N00/5072788516 "View 'Autumn by Loch Laggan' on Flickr.com")
 

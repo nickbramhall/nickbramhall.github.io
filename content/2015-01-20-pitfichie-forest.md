@@ -17,7 +17,7 @@ Distance: 14.7km
 Ascent: 491m  
 Hills: Green Hill, Cairn William, Pitfichie Hill  
 Weather: Sunshine and snow showers                   
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/227)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/227)**
 
 After some interesting maneuvers by the coach driver on the access road we were off the coach and heading up to the car park and then on to the start of the Pitifichie forest cycleway. Under a thin cover of snow this offered an easy walk uphill with just a couple of the more hardy mountain bikers overtaking us.
 

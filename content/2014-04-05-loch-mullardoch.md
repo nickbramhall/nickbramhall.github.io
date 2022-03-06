@@ -17,7 +17,7 @@ Distance: 27.98km
 Ascent: 1,712m  
 Hills: Carn nan Gobhar [Munro], Sgurr na Lapaich [Munro], An Riabhachan [Munro]            
 Weather: Chill easterly wind, cloud at around 1,000m, hazy views                 
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/423)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/423)**
 
 The last few steps along the rocky track, up an embarrassingly shallow gradient, were the worst of the whole trip. 26 hours earlier I had headed down the same slope with a spring in my step, the graceful ribs of the Affric hills running down to meet the slate grey waters of Loch Mullardoch. After gazing down the length of this loch [from the summit of Beinn Fionndlaidh on a hot day in June 2010](/blog/2010/06/eastern-affric-munros/) I'd been eager to explore the long ridge of mountains that run along the north bank of the loch with views north to Loch Monar and Strathfarrar. With a couple of nights available to me I'd decided to try and combine the four Mullardoch Munros with the three western Affric Munros that had eluded me on [last year's TGO Challenge](/blog/2013/05/tgoc-part-1/).
 

@@ -12,7 +12,7 @@ Ascent: 1,264m
 Time: 8hrs 30min  
 Hills: Derry Cairngorm (Munro, 1,155m)  
 Weather: A stunning spring day, blue skies and sunshine  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/382)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/382)**
 
 Sunlight dappled the forest track as we climbed away from the Linn of Dee. The long march down the Derry Road was completed without much complaint as the sight of the snow capped mountains under brilliant blue skies drew us on. A welcome elevenses broke the journey at Derry Lodge where we sat around in the sunshine though the breeze was cool enough to merit an outer layer and zipped up tops.
 

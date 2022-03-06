@@ -17,7 +17,7 @@ Distance: 29.35km
 Ascent: 638m  
 Hills: None    
 Weather: High winds, cloud and sunny showers       
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/401)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/401)**
 
 Last year the August Stocket walk was wonderful. On one of the single best days of the summer we enjoyed beautiful sunshine and a cooling breeze as we traversed from the Linn of Dee through to Coylumbridge via the Cairn Toul massif on the west side of Glen Dee. Any repeat of such a glorious day was not to be this year though as forecast high winds, low cloud and bands of rain made us rethink our plan of a full traverse of the wide open spaces of the Ben Avon plateau. 
 

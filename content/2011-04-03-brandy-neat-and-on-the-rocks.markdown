@@ -11,7 +11,7 @@ Ascent: 949m
 Time: 3hrs 53mins  
 Hills: The Snub, Green Hill (870m), The Goet (896m, Corbett)  
 Weather: Bright sunshine, very strong, chilling wind  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/346)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/346)**
 
 
 

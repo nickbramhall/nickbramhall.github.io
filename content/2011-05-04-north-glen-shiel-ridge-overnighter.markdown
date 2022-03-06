@@ -15,7 +15,7 @@ Ascent:  1,604m
 Time: 5hrs 39mins  
 Hills: Aonach Meadhoin (Munro, 1,001m), Sgurr a' Bhealaich Dheirg (Munro, 1,036m), Saileag (Munro, 956m), Sgurr nan Spainteach (Munro Top, 990m), Sgurr na Ciste Duibhe (Munro, 1,027m)  
 Weather: Cloudless, hazy skies with a strong easterly wind rising into the night.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/345)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/345)**
 
 
 

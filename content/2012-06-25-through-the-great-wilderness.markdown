@@ -12,7 +12,7 @@ Ascent: 1,410m
 Time: 10hrs 15min (including several breakfast stops!)  
 Hills: Beinn a' Chlaideimh (Ex-Munro, 914m)  
 Weather: Early bright skies, mild, later on low cloud and humid with brief rain showers  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/380)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/380)**
 
 
 Aberdeen on Friday evening was warm and muggy with a constant threat of precipitation in the air. Carting my backpack, change of clothes and barbeque provisions up the long hill of King’s Gate to the Atholl Hotel was certainly a good warm up for the weekend and it was a relief to get hold of a cold pint of beer whilst we waited for everyone to assemble. Recent tales of backpacking and camping were swapped and possible side-excursions for the day were discussed. We had a chat through the various weather forecasts and chose the most optimistic one for the next day’s walking.

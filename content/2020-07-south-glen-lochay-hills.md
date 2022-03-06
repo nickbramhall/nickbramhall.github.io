@@ -18,7 +18,7 @@ Ascent: 1560m
 Time: 7.9hrs  
 Hills: Meall a' Churain (Munro Top), Sgiath Chuil (Munro), Beinn Cheathaich (Munro Top), Meall Glas (Munro), Beinn nan Imirean (Corbett)  
 Weather: Cold for July with a persistent westerly wind and showers on and off all day  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/516)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/516)**
 
 Back in March 2014 on a stormy weekend my friend Rich and I were defeated on an [attempt to backpack around the Glen Lochay hills](https://tms.nickbramhall.com/blog/2014/03/glen-lochay/). After a tough slog up to the 900m point, white-out conditions on the final rocky ridge to the first Munro of Sgiath Chuil caused us to reconsider our options. We opted to retreat and descend from the bealach, seeking shelter in the glen. The strong wind never really dropped and after a very blustery night we walked back out to the car without having achieved our objectives. 
 

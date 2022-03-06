@@ -12,4 +12,4 @@ Time: 6.5 hours
 Ascent: 3,498ft  
 Munros: Beinn Sgritheall  
 Weather: Hot, sunny, hazy
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/308)
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/308)

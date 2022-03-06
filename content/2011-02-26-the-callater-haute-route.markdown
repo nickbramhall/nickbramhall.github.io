@@ -11,7 +11,7 @@ Ascent: 1368m
 Time: 9hrs 45mins (including stops)  
 Hills: Carn an t-Sagairt Mor (Munro, 1047m), Cairn Bannoch (Munro, 1012m), Tolmount (Munro, 958m), Cairn of Claise (Munro, 1064m), Carn an Tuirc (Munro, 1019m), Carn Dubh (822m), Creag nan Gabhar (Corbett, 834m)  
 Weather: Early overcast clearing rapidly from northwest, later heavy snow showers  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/351)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/351)**
 
 
 

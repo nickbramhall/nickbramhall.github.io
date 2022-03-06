@@ -13,7 +13,7 @@ Ascent:  1,311m
 Time: 8hrs 48mins  
 Hills: Carn a' Mhaim (Munro, 1,037m), Ben MacDui (Munro, 1,309m)  
 Weather: Early low cloud and drizzle giving way to hazy blue skies and a strong wind.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/348)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/348)**
 
 
 

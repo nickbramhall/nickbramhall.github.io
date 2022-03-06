@@ -10,7 +10,7 @@ Author: Nick Bramhall
 Distance: 13 miles  
 Time: 4.5 hours (including stops)  
 Weather: "Wintry"  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/299)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/299)**
 
 It seemed the hillwalkers forecast on Sunday morning had been wrong; for much of the journey out from Aberdeen on the 201 Stagecoach the skies were blue and the first hills looked beautiful. Morven in particular, with a cap of pristine fresh snow (we had seen the clouds march towards Aberdeen on Thursday but they had never hit), looked stunning. We passed through Ballater where there was a thin covering of snow on the green by the church, but it was only really as we entered the trees a few miles before Crathie that things changed. The bus driver commented â€œit was like going through the wardrobe into Narniaâ€. All of sudden the branches were laden with snow, and fresh flakes were drifting down onto a ground that was increasingly white and winter-like.
 

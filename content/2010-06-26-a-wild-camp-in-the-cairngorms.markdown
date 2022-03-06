@@ -12,7 +12,7 @@ Ascent: 1390 m
 Time: 8hrs 10mins (excluding the camping bit!)  
 Munros: The Devil's Point, Cairn Toul, The Angel's Peak  
 Weather: Day 1, clear and warm, Day 2, early sunshine, cloud above 1100m, late warm and humid  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/333)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/333)**
 
 
 

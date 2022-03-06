@@ -9,7 +9,7 @@ Author: Nick Bramhall
 **Distance: 11 miles  
 Time: 7 hours (including stops for food, drink, crampons, photos!)  
 Munro: Beinn Liath Mhor  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/223)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/223)**
 
 
 

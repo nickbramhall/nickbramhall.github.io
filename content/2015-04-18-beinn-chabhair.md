@@ -17,7 +17,7 @@ Distance: 14.5km
 Ascent: 916m  
 Hills: Beinn Chabhair (Munro, 933m)    
 Weather: Warm and sunny with a cool breeze at times                     
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/429)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/429)**
 
 This weekend had been in the diary for a while, fully expecting winter to be holding its steely grip on the mountains and for the views to be limited. Last September I’d accompanied Matt and Jenny on their first two Munros, those [above Loch Lochy](/blog/2014/10/loch-lochy-munros/), west of the Great Glen on a perfect autumn day with sunshine and bellowing stags. They’d been quite taken with the whole thing and were keen to get up to Scotland for another outing in the mountains. With their accomodation booked in Callander we’d agreed to do something in the southwest and after I sent Matt my list of unclimbed Munros he chose Beinn Chabhair as our target for the day. This is set back from Glen Falloch at the western end of the Crianlarich hills and based on likely conditions we chose to ascend it by the standard book route from the Drovers Inn besides the A82 on the west side of the hill. This would hopefully give a good path to follow and ensure we missed out any remnant snow patches on northern and eastern aspects which were still hanging on despite the widespread thaw and forecast mild temperatures.
 

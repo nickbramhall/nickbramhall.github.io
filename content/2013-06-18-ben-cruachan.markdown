@@ -13,7 +13,7 @@ Distance: 45.03km
 Ascent: 3,015m  
 Hills: Beinn Eunaich [Munro], Beinn a' Chochuill [Munro], Ben Cruachan [Munro], Stob Daimh [Munro]    
 Weather: Glorious. Warm and sunny. Very little breeze except in the evening.     
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/254)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/254)**
 
 An inauspicious start: drizzly grey in Aberdeen; passing the aftermath of a bad accident on the A90; wiping out a pheasant on the A85 coming into Comrie. Thankfully by the time I wound down towards Loch Awe from Tyndrum the sun was shining and after a quick map check I found the layby near the farm of Castles which is the starting point for those heading towards the Lairig Noe and the two Munros to the north of this pass.
 

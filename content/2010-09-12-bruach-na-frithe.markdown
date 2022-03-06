@@ -11,7 +11,7 @@ Ascent: 914m
 Time: 5hrs 07mins  
 Munros: Bruach na Frithe (958m)  
 Weather: Early light rain giving way to sunshine, very strong winds on top  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/147)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/147)**
 
 _"The Cuillin... they will never look the same for very long, now blue, now grey, now silver, sometimes seeming to retreat or to advance, but always drenched in mystery and terrors"_ -- H. V. Morton
 

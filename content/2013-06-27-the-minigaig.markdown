@@ -13,7 +13,7 @@ Distance: 39.79km
 Ascent: 1,112m  
 Hills: Leathad an Taobhain [912m, Corbett]  
 Weather: Low cloud and hillfog, later sunshine and some brief rain  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/214)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/214)**
 
 The rain seemed to start seconds after we pulled up in the tiny hamlet of Calvine, just off the A9 near Blair Atholl. It was two in the morning on a humid midsummer night and we were here to walk north across the hills to Glen Feshie, some twenty-four miles away. 
 

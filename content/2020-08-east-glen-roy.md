@@ -18,7 +18,7 @@ Ascent: 2084m
 Time: 26.8hrs  
 Hills: Carn Dearg (Corbett), Beinn Teallach (Munro), Beinn a' Chaorainn North Top (Munro Top), Beinn a' Chaorainn (Munro), Beinn a' Chaorainn South Top (Munro Top), Creag Meagaidh (Munro)  
 Weather: Sunshine and showers with a persistent and cold northerly wind  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/518)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/518)**
 
 ## Saturday 29th August
 

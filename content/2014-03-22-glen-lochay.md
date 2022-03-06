@@ -17,7 +17,7 @@ Distance: 33.44km
 Ascent: 1,033m  
 Hills: None          
 Weather: Mild, very strong winds, low cloud               
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/251)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/251)**
 
 After the initial steep ascent up the east ridge of Sgiath Chuil the gradient eased for a moment. It was enough to give me a chance to take a rest and see what was coming next. Here at almost 900m in the teeth of 65mph winds whistling around from the northwest it was difficult to stand still, let alone stand up straight. I peered forward; through thick, swirling mist it was hard to discern the slopes. To my left snow-clad buttresses of rock seemed to arc out into the void. Directly above where I stood the ground steepened rapidly to a snow slope streaked with grimy fall lines. Glancing at the map confirmed we less than 100m from reaching the summit plateau but in those conditions it could have been 10m and we would have stood just as little chance of reaching it.
 

@@ -11,7 +11,7 @@ Distance: 12.5 miles
 Ascent: 6,000 ft  
 Munros: Sgur Eilde Mor, Binnein Beag, Binnein Mor, Na Gruagaichean  
 Weather: Early sun, later rain showers, cloud and cool temperatures  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/167)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/167)**
 
 
 

@@ -11,7 +11,7 @@ Distance: 9.3 miles
 Ascent: 977m  
 Time: 3hrs 10mins  
 Munros: Mayar, Dreish  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/319)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/319)**
 
 
 

@@ -12,7 +12,7 @@ Ascent:  886m
 Time: 3hrs 30min  
 Hills: Mayar (Munro, 928m)  
 Weather: Dreich  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/375)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/375)**
 
 
 I suppose it was inevitable that my run of good luck with the weather had to come to an end at some point. This was to be the weekend. After a cold, rainy Saturday spent in various coffee shops and the art gallery to get my long and rambling Ben Alder report written up I was determined to get out on Sunday, especially as MWIS had forecast better weather in the Southeast Highlands for the day. After recent long drives I tried to minimise driving time by heading down the road to my "local" hills in Angus and headed up Glen Clova to the Glen Doll car park where there is a good choice of potential routes and hills. As I left Kirriemuir and picked up the winding Glen Clova road the clouds let spill a substantial part of the North Sea and pretty soon it wasn't a road I was following, but a river. 

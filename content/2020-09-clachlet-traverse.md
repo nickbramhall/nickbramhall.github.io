@@ -20,7 +20,7 @@ Ascent: 2,126m
 Time: 30hrs  
 Hills: Stob a' Choire Odhair (Munro), Stob Ghabhar (Munro), Clach Leathad (Munro Top), Creise (Munro), Meall a' Bhuiridh (Munro)  
 Weather: Sunny almost the entire time. A chill northerly wind on Saturday. Calm and warm on Sunday  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/519)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/519)**
 
 ## Saturday 26th September
 

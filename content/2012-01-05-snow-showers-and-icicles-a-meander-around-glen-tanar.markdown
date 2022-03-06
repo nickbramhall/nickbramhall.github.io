@@ -12,7 +12,7 @@ Ascent:  920m
 Time: 6hrs 8mins  
 Hills: Mount Keen (Munro, 939m), Gathering Cairn (790m) 
 Weather: Cold, bright sunshine in the glen during the morning. Later high winds and snow showers.
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/363)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/363)**
 
 
 

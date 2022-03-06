@@ -12,7 +12,7 @@ Ascent:  1,470m
 Time: 6hrs 00mins  
 Hills: Meallan nan Uan (Corbett, 838m),  Sgurr a'Ghlas Leathaid (Corbett Top, 844m), Sgurr a'Mhuilinn (Corbett, 879m)  
 Weather: Cloud above the tops, some sunshine, heavy rain showers turning snowy and more persistent later.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/356)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/356)**
 
 
 

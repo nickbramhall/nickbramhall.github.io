@@ -24,7 +24,7 @@ At least... that was the plan.
 Distance: 10.06km  
 Elevation: 805m  
 Hills: Fionn Bheinn (Munro, 933m)  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/446)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/446)**
 
 Elsewhere in Scotland scores of backpackers were marching (or perhaps limping) across the country, their sights set on the east coast and the end of the 2014 TGO Challenge. So whilst the Cairngorm tracks rang out to the sound of clicking trekking poles, I caught the train west from Aberdeen, changing at Inverness onto the Kyle line, and alighting at Achnasheen a little before midday. 
 

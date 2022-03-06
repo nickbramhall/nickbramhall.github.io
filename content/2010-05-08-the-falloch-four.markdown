@@ -11,7 +11,7 @@ Time: 8hrs 30mins (including many stops)
 Ascent: 1,977m (6,486ft)  
 Mountains: Beinn a' Chroin (Munro 942m), An Caisteal (Munro 995m), Cruach Ardrain (Munro 1,046m), Beinn Tulaichean (Munro 946m)  
 Weather: Early clear blue skies with drifting cloud developing, warm out of the cold northerly wind  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/386)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/386)**
 
 A slightly later start than usual had me slightly concerned that I was missing out on the early weather window promised by MWIS and the Met Office. Although it was slightly overcast in Aberdeen at 6:30am, as I drove down the A90 the cloud retreated from the coast until it hung over the Angus hills, leaving me in bright sunshine. Dundee and Perth were only just waking up as I sailed through and it was only the usual combination of tractors, road works and weekend drivers that slowed me down on the A82. Loch Earn looked spectacular and after that it was short blast south towards Stirling before turning off the main road and making for Balquidda.
 

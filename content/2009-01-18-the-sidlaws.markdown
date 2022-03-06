@@ -8,7 +8,7 @@ Author: Nick Bramhall
 
 **Distance: 9.7 miles  
 Time: 5 hours (including stops)
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/297)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/297)**
 
 For once the malevolent weather gods of Aberdeen had taken a Sunday off, the coach arrived early  and we even got a stop for bacon rolls at the services of Strathcaro where the authentic seventies experience is free. At the back of the coach it was Baltic and so the frigid air at Lumley Den was not much of a surprise as we kitted up under promisingly blue skies.
 

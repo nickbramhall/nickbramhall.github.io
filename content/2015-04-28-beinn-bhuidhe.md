@@ -17,7 +17,7 @@ _A short overnighter making the most of excellent April weather taking in the Mu
 Distance: 23.03km  
 Elevation: 1,145m  
 Hills: Beinn Bhuidhe (Munro, 949m)    
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/433)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/433)**
 
 ##Saturday 18th April 2015
 

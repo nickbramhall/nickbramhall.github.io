@@ -18,7 +18,7 @@ Ascent: 1238m
 Time: 5hrs  
 Hills: Beinn Each (Corbett), Stuc a' Chroin (Munro)  
 Weather: Sunny, strong cool wind all day  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/515)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/515)**
 
 On the 23rd March the country went into lockdown due to the rapid spread of COVID19. In the fifteen or so weeks since then I have stuck to walks from my door. During the full lockdown this was limited to a daily dog walk through the local woods. As lockdown eased I started to venture into the lower Ochils immediately above my house and then further into the Ochils, exploring new routes and appreciating what I had available to me.
 

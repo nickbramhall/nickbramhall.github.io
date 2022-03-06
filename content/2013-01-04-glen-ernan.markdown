@@ -14,7 +14,7 @@ Ascent: 544m
 Time: 4 hrs 30 mins  
 Hills:  Cairn Vachich, Gael Charn, Carn Mor  
 Weather: Early rain giving way to sunshine. Very gusty wind. Mild.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/216)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/216)**
 
 The first hillwalk of 2013 started amidst wind and rain as Dave and I headed down Glen Ernan from a start just off the main Strathdon road. Thirty minutes later we were peeling back sodden hoods to gaze up in amazement at the blue sky that had appeared overhead. The glen, at first wide and fertile, narrowed and started twisting about the feet of the encroaching hills. We stopped for a snack and then pressed on, following the easy track until we reached the shiel in the upper glen. This turned out to be a rather smart estate building and attendant bothy, both freshly painted but sadly locked.
 

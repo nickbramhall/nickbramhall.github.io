@@ -18,7 +18,7 @@ Ascent: 1,157m
 Time: 5hrs 45mins  
 Hills: Meall Ghaordaidh (Munro, 1,039m), Beinn nan Oighreag (Corbett, 909m)
 Weather: Bright and sunny with barely any wind at all    
-Route: [Click to view on an OS Map](https://www.invertedworld.co.uk/hillwalking/trip/385)**
+Route: [Click to view on an OS Map](https://www.invertedworld.co.uk/hillwalking/hillwalk/385)**
 
 Though the clocks had changed the morning dawned with a crisp, frosty feel to the air more appropriate for winter than early spring. The dawn was also cloudless and as I drove over the hills towards Doune the peaks of the Trossachs glowed red in the morning sky. Glen Lochay was quiet and only one car had beaten me to the start of the walk up to Meall Ghaordaidh.
  

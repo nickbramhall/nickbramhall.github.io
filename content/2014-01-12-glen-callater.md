@@ -17,7 +17,7 @@ Distance: 28.34km
 Ascent: 1,007m  
 Hills: Carn an Tuirc [Munro], Tolmount [Munro], Carn an t-Sagairt Mor [Munro]          
 Weather: Very cold, snow underfoot, occasional cloud but mostly sunny               
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/221)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/221)**
 
 The first high pressure system of 2014 showed up just in time for the weekend and finally I was looking more at the possibility of sunshine and icy temperatures rather than rain and gale force winds that have oft been the dominating weather feature of late. Rather than heading too far afield I chose to revisit a favourite corner of the world and take a stroll down Glen Callater which lies to the south of Braemar and cuts into the western side of the high Mounth plateau, angling towards the hills and glens of Angus.
 

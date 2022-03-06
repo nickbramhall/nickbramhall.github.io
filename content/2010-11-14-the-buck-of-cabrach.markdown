@@ -12,7 +12,7 @@ Ascent: 669m
 Time: 5hrs 21mins  
 Grahams: The Buck (720m)  
 Weather: Bitterly cold easterly wind and early high cloud. Some clearing but then snow showers on top     
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/336)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/336)**
 
 
 

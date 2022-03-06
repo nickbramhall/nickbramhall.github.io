@@ -12,7 +12,7 @@ Time: 9 hours
 Attendees: The Stocket Hillwalking Club  
 Munros: Braeriach  
 Weather: Cloud at 800m, high winds
-Route:  [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/321)**
+Route:  [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/321)**
 
 
 The trundle around to Aviemore was long, and largely uneventful and, though the bus driver was dubious, we were eventually on the right road heading past Loch Morvich up towards the ski centre at Cairn Gorm. Jim was also doubtful but we turned into the car park opposite the walk start and were soon booting up under austere but definitely brightening skies (NH985073). 

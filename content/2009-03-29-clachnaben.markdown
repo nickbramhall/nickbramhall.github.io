@@ -10,4 +10,4 @@ Author: Nick Bramhall
 Time: 4 hours  
 Hills: Clachnaben, Mt Shade, Threestane Hill  
 Meteorology: Fine early spring day with plenty of sunshine
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/307)
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/307)

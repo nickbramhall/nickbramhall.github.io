@@ -12,7 +12,7 @@ Author: Nick Bramhall
  Time: 5hrs 59mins  
  Hills: West Wirren, Hill of Wirren (Graham, 678m), West Wirren  
  Weather: Very cold, light winds, clear skies, haze developing at low levels  
- Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/364)**
+ Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/364)**
 
 [![Sunrise](http://farm8.staticflickr.com/7033/6703151869_9c6891b998_b.jpg)](http://www.flickr.com/photos/black_friction/6703151869/ "Sunrise by Nick Bramhall, on Flickr")
 

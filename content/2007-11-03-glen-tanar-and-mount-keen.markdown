@@ -9,7 +9,7 @@ Author: Nick Bramhall
 **Distance: 22miles
 Time; 7hrs
 OS Map: 44
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/191)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/191)**
 
 
 

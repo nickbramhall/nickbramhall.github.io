@@ -11,7 +11,7 @@ Time: 8 hours
 Ascent: 5,600ft  
 Hills: Cnap Cruinn (Graham, 742m), Stob a' Choire Mheadhoin (Munro, 1106m), Stob Coire Easain (Munro, 1115m)  
 Weather: Hazy sunshine, clearer early afternoon, very strong Southerly wind  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/329)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/329)**
 
 
 

@@ -10,7 +10,7 @@ Author: Nick Bramhall
 Time: 6 hours  
 Munros: Stob a'Choire Odhair (926m), Stob Ghabhar (1025m)  
 Weather: Overcast, light winds, cold  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/328)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/328)**
 
 
 

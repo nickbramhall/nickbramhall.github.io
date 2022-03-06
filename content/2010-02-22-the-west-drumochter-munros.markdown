@@ -11,7 +11,7 @@ Time: 7 hours (including stops and backtracking to retrieve ice axe)
 Munros: Sgairneach Mhor, Beinn Udlamain, Gael-Charn, A'Mharconaich  
 Distance: 14.77 miles  
 Ascent: 1,545m (5,068ft)
-Route:  [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/326)**
+Route:  [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/326)**
 
 
 

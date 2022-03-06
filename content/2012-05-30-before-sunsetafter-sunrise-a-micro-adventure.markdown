@@ -13,7 +13,7 @@ Ascent:  505m
 Time: 11hrs 2min (total)  
 Hills: Cruys (741m), Cairn of Meadows (687m)  
 Weather: Very warm, unbroken sunshine  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/372)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/372)**
 
 
 

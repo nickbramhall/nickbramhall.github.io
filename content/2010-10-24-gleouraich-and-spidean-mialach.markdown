@@ -12,7 +12,7 @@ Ascent: 1,149 m
 Time: 5hrs 40mins  
 Munros: Sgurr a' Mhaoraich (1,036m)  
 Weather: Early high cloud clearing to blue skies. Very cold with snow above 700m  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/337)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/337)**
 
 
 

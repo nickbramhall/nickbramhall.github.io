@@ -14,7 +14,7 @@ Ascent:  875m
 Time: 5hrs 35mins  
 Hills: Carn an Tuirc (Munro, 1,018m), Cairn of Claise (Munro, 1,064m), Glas Maol (Munro, 1,068m)  
 Weather: Low cloud, strong winds on the plateau, mild.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/360)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/360)**
 
 Sixteen Stockets bravely set out from the car park at the start of the path which eventually crosses to Glen Isla by way of the Monega Pass. Though there was rain in the air, it wasn't particularly heavy, and the real problem was the ground underfoot which was merely muddy in places, but a true quagmire in others. A short distance down the path we turned left to climb gently up besides the north bank of the Allt a' Gharbh-choire. The path here was a little better, with some solid gravel underfoot, and so we made swift progress up besides a couple of impressive waterfalls and so further up into the mist. The line of the road faded into nothingness as our world was reduced to the few meters around us; people just a few paces behind were fuzzy shadows.
 

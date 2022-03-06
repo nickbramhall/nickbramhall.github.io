@@ -18,7 +18,7 @@ Ascent: 618m
 Time: 5hrs 45mins  
 Hills: Ben Chonzie (Munro, 931m)         
 Weather: Bright and sunny with a strong north-westerly wind     
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/259)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/259)**
 
 For the first time since July 2017 I loaded up the car and headed out into the bright morning sunshine, on my way to the hills. Ben Chonzie near Crieff had long been on the list for a winter hill day and the conditions looked pretty promising for a good day out.
  

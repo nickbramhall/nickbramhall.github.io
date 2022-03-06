@@ -12,7 +12,7 @@ Ascent:  1,494m
 Time: 19hrs 22mins (including camping...)  
 Hills: Fiacaill a'Choire Chais (Top, 1,141m), Carn Etchachan (Munro Top, 1120m), Beinn Mheadhoin (Munro, 1,182m), Ben MacDui (Munro, 1,309m)  
 Weather: Day 1 brought persistent rain and snow showers later clearing on day 2 to bright sunshine with cloud building again towards midday. Sub-zero over night.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/352)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/352)**
 
 
 

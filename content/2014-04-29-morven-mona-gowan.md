@@ -17,7 +17,7 @@ Distance: 28.34km
 Ascent: 1,007m  
 Hills: Mona Gowan (Graham), Morven (Corbett)            
 Weather: Very breezy with plenty of sunshine                 
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/225)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/225)**
 
 It was blowing an absolute hoolie when I parked up in the modest sized layby besides the A939 above Glen Gairn. I got my stuff sorted in the shelter of the boot but even so there was still a danger of losing stuff as anything loose blew wildly around. Still, there was sunshine and fast moving clouds and it felt good to be back in trail shoes with a view of hills all around.
 

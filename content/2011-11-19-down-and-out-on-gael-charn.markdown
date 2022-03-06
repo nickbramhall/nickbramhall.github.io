@@ -12,7 +12,7 @@ Ascent:  628m
 Time: 6hrs 24mins  
 Hills: Gael Charn (Corbett, 821m)  
 Weather: Mild with light winds, later sunshine after cloudy start  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/354)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/354)**
 
 
 

@@ -19,7 +19,7 @@ Distance: 20.21km
 Ascent: 843m  
 Hills: Beinn na h-Uamha [Corbett]          
 Weather: Very cold, snow underfoot, occasional cloud but mostly sunny               
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/414)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/414)**
 
 By Tuesday morning all was calm. A blue sky arced above Ardgour as I stepped out of the cottage door and crunched my way down the snowy back road a short distance to pick up the right of way which winds down Glen Gour and eventually through to Strontian. A pair of dogs came bounding down the path to greet me, their owner giving me a cheerful hello as I followed the track down to the shores of icy Loch nan Gabhar where a line of semi-submerged stones led the eye to Beinn na h-Uamha, the day's intended hill.
 

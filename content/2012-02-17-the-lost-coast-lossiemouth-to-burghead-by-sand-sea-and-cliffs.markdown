@@ -12,7 +12,7 @@ Ascent:  126m
 Time: 5hrs 14mins  
 Hills: None whatsoever  
 Weather: Mild, light breeze, later drizzle turning to light rain  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/378)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/378)**
 
 [![Moray Coastal Trail](http://farm8.staticflickr.com/7046/6858408015_629642ffc9_b.jpg)](http://www.flickr.com/photos/53725815@N00/6858408015)
 

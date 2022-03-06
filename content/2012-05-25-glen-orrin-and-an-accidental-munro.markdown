@@ -12,7 +12,7 @@ Ascent:  1,598m
 Time: 9hrs 8min (walking)  
 Hills: Carn nan Gobhar (992m, Munro)  
 Weather: Rain and snow showers, low temperatures and breezy at height.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/368)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/368)**
 
 
 

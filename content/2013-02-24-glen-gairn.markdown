@@ -14,7 +14,7 @@ Ascent: 805m
 Time: 5 hrs 40 mins    
 Hills:  None   
 Weather: Mild air temperatures but snow underfoot, chill wind, low clouds.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/201)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/201)**
 
 I have no qualms about labelling myself as a fair-weather hiker, and perhaps even more so, a fair-weather backpacker. The thought of a spending a restless night in a tent being thrown about by gusting winds or lashed by rain really doesn’t appeal. And so it was that several weekends in January and February were dismissed for one weather-related reason or another. Eventually though there was a hint of something better in the forecast, with milder temperatures and gentler winds promised I packed up my camping gear and headed for the Cairngorms. With just an afternoon and a morning available I chose a straightforward circular route from Keiloch on the A93 a few miles east of Braemar. An overnight camp would break up the 18 miles quite nicely and would give me an opportunity to try some mild winter camping. 
 

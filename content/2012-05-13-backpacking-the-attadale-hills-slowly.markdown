@@ -12,7 +12,7 @@ Author: Nick Bramhall
  Time: A Long While  
  Hills: Sgurr na Feartaig (Corbett, Beinn Tharsuinn (Corbett), Bidein a’ Choire Sheasgaich (Munro), Lurg Mhor (Munro), Sgurr Choinnich (Munro)  
  Weather: Early sunshine giving way to cloud. Very cold wind and low temperatures.  
- Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/371)**
+ Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/371)**
 
 ##Day 1
 

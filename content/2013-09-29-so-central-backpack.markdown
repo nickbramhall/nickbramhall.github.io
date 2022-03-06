@@ -23,7 +23,7 @@ Distance: 121.18km
 Ascent: 3,925m  
 Hills: Meall Corranaich [Munro], Meall a' Choire Leith [Munro], A' Bhuideaneach Bheag [Munro], Carn na Caim [Munro], Meall Cuaich [Munro]      
 Weather: Low cloud and drizzle giving way to sunshine      
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/398)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/398)**
 
 ##Day 1
 

@@ -14,7 +14,7 @@ Ascent: 665m
 Time: 7 hrs 30 mins  
 Hills:  Carn Liath  
 Weather: Early sunshine giving way to cloudy but dry conditions. Very cold wind.  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/366)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/366)**
 
 Sunday morning dawned cold and clear in Aberdeen. A close conjunction of Venus and the waning Moon hung low in the eastern sky as I walked to the meeting point for the November Stocket hillwalk. There a gathering of Stockets was lacking only one thing: a coach. After a couple of phone calls the confusion was sorted out and twenty-five minutes later we were on a warm coach heading west down Deeside under beautiful morning skies. Pockets of frost and a low running river were both remarked on.
 

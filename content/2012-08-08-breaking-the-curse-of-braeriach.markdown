@@ -16,7 +16,7 @@ Ascent: 1,678m
 Time: 10hr 15min  
 Hills: Braeriach (Munro), Angel's Peak (Munro), Cairn Toul (Munro), Devil's Point (Munro)  
 Weather: Early bright sunshine, cloudy later with a heavy rain shower  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/362)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/362)**
 
 Other than perhaps getting up to head on holiday, 4:30am on a Saturday morning isn’t a time I would normally be pleased to see. Looking outside didn’t do much to engage my motivation; Aberdeen was wreathed in a dense, Victorian fog and I could barely see the other other side of the street. However, I had somewhere to be and someone to meet so after a few last minute preparations and a pain au chocolat consumed between yawns I was on the road. 
 
@@ -174,7 +174,7 @@ Ascent: 1,091m
 Time: 9hr 18min  
 Hills: Sgor Gaoith (Munro)  
 Weather: Early mist clearing to sunshine with later on cloud and then heavy rain  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/trip/362)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/362)**
 
 [![Campsite below the Devil's Point](http://farm8.staticflickr.com/7136/7754502660_66d64b001f_b.jpg)](http://flic.kr/p/cPeRtJ "Campsite below the Devil's Point by Nick Bramhall, on Flickr")
 
