@@ -2,7 +2,6 @@ Title: Before Sunset/After Sunrise, A Micro-Adventure
 Date: 2012-05-30 22:15:14
 Modified: 2012-05-30 22:15:14
 Category: The Angus Glens
-
 Tags: 
 Slug: before-sunsetafter-sunrise-a-micro-adventure
 Author: Nick Bramhall

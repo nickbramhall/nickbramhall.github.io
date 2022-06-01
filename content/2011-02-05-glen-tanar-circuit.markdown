@@ -6,11 +6,11 @@ Tags:
 Slug: glen-tanar-circuit
 Author: Nick Bramhall
 
-**Distance: 23.53 km
-Ascent: 701 m
-Time: 6hrs 11mins (including stops)
-Hills: Clachan Yell (626m), Black Craig (640m), Red Craig (599m)
-Weather: Beautiful hazy winter day with high, light cloud and sunshine 
+**Distance: 23.53 km  
+Ascent: 701 m  
+Time: 6hrs 11mins (including stops)  
+Hills: Clachan Yell (626m), Black Craig (640m), Red Craig (599m)  
+Weather: Beautiful hazy winter day with high, light cloud and sunshine  
 Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/343)**
 
 

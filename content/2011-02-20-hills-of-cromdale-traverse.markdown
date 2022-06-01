@@ -2,7 +2,6 @@ Title: Hills of Cromdale Traverse
 Date: 2011-02-20 23:00:37
 Modified: 2011-02-20 23:00:37
 Category: The Cairngorms
-
 Tags: 
 Slug: hills-of-cromdale-traverse
 Author: Nick Bramhall

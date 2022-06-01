@@ -2,7 +2,6 @@ Title: Carn a' Mhaim and Ben MacDui
 Date: 2011-05-08 18:02:49
 Modified: 2011-05-08 18:02:49
 Category: The Cairngorms
-
 Tags: munro
 Slug: carn-a-mhaim-and-ben-macdui
 Author: Nick Bramhall

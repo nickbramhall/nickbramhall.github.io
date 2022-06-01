@@ -2,8 +2,7 @@ Title: Gleouraich and Spidean Mialach
 Date: 2010-10-24 23:13:38
 Modified: 2010-10-24 23:13:38
 Category: The Northwest Highlands
-
-Tags: 
+Tags: munro
 Slug: gleouraich-and-spidean-mialach
 Author: Nick Bramhall
 

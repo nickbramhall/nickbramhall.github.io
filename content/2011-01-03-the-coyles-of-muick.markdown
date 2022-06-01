@@ -2,7 +2,6 @@ Title: The Coyles of Muick
 Date: 2011-01-03 23:02:49
 Modified: 2011-01-03 23:02:49
 Category: The Cairngorms
-
 Tags: 
 Slug: the-coyles-of-muick
 Author: Nick Bramhall

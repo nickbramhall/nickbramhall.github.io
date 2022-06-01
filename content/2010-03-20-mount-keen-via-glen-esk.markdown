@@ -2,7 +2,6 @@ Title: Mount Keen via Glen Esk
 Date: 2010-03-20 22:07:37
 Modified: 2010-03-20 22:07:37
 Category: The Mounth
-
 Tags: munro
 Slug: mount-keen-via-glen-esk
 Author: Nick Bramhall

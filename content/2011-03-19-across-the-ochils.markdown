@@ -2,7 +2,6 @@ Title: Across the Ochils
 Date: 2011-03-19 23:17:01
 Modified: 2011-03-19 23:17:01
 Category: The Southeast Highlands
-
 Tags: 
 Slug: across-the-ochils
 Author: Nick Bramhall

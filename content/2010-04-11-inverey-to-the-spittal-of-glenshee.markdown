@@ -2,7 +2,6 @@ Title: Inverey to the Spittal of Glenshee
 Date: 2010-04-11 23:02:59
 Modified: 2010-04-11 23:02:59
 Category: The Cairngorms
-
 Tags: 
 Slug: inverey-to-the-spittal-of-glenshee
 Author: Nick Bramhall

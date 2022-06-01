@@ -2,7 +2,6 @@ Title: Kerloch to Drumtochty
 Date: 2011-01-22 23:00:00
 Modified: 2011-01-22 23:00:00
 Category: The Cairngorms
-
 Tags: 
 Slug: kerloch-to-drumtochty
 Author: Nick Bramhall

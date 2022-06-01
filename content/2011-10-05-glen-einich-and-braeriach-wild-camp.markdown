@@ -2,7 +2,6 @@ Title: Glen Einich and Braeriach Wild Camp
 Date: 2011-10-05 22:49:08
 Modified: 2011-10-05 22:49:08
 Category: The Cairngorms
-
 Tags: munro
 Slug: glen-einich-and-braeriach-wild-camp
 Author: Nick Bramhall
