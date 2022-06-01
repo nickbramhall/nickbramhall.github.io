@@ -11,7 +11,7 @@ sys.path.append(os.curdir)
 from pelicanconf import *
 
 # If your site is available via HTTPS, make sure SITEURL begins with https://
-SITEURL = 'https://tms.nickbramhall.com'
+SITEURL = 'https://tms.invertedworld.co.uk'
 ABSOLUTE_URL = SITEURL
 RELATIVE_URLS = False
 
