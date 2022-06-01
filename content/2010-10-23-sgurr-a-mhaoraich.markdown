@@ -27,7 +27,7 @@ In the end, after a good night's sleep in the [brilliant Invergarry Lodge hostel
 
 
 
-[![](http://static.flickr.com/1110/5123906964_d883e4225f_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123906964)
+[![](http://static.flickr.com/1110/5123906964_d883e4225f_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123906964)
 
 
 
@@ -35,11 +35,11 @@ It was my first time out in this part of the country and I was instantly won ove
 
 
 
-[![](http://farm2.static.flickr.com/1333/5123896602_60de9500f0_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123896602)
+[![](http://farm2.static.flickr.com/1333/5123896602_60de9500f0_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123896602)
 
 
 
-[![](http://farm2.static.flickr.com/1349/5123296697_ae81d241de_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123296697)
+[![](http://farm2.static.flickr.com/1349/5123296697_ae81d241de_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123296697)
 
 
 
@@ -47,7 +47,7 @@ I should mention that today was a special day for one member of the Stocket Hill
 
 
 
-[![](http://farm5.static.flickr.com/4103/5123902002_c2c20e2b72_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123902002)
+[![](http://farm5.static.flickr.com/4103/5123902002_c2c20e2b72_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123902002)
 
 
 
@@ -55,11 +55,11 @@ From there we began the long but easy climb up the excellent path which graduall
 
 
 
-[![](http://static.flickr.com/4092/5123309415_cee913814a_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123309415)
+[![](http://static.flickr.com/4092/5123309415_cee913814a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123309415)
 
 
 
-[![](http://static.flickr.com/1087/5123909160_9a65067ec9_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123909160)
+[![](http://static.flickr.com/1087/5123909160_9a65067ec9_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123909160)
 
 
 
@@ -67,11 +67,11 @@ However, the party piece during the early stages of the day was the South Glen S
 
 
 
-[![](http://farm2.static.flickr.com/1396/5123753829_fba2f13f8e_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123753829)
+[![](http://farm2.static.flickr.com/1396/5123753829_fba2f13f8e_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123753829)
 
 
 
-[![](http://static.flickr.com/1264/5118322376_bb8694d6d1_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5118322376)
+[![](http://static.flickr.com/1264/5118322376_bb8694d6d1_b.jpg)](http://www.flickr.com/photos/53725815@N00/5118322376)
 
 
 
@@ -79,11 +79,11 @@ We continued on and as we tracked back slightly to the summit cairn of Sgurr Coi
 
 
 
-[![](http://static.flickr.com/1046/5124570482_a1e26b3967_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124570482)
+[![](http://static.flickr.com/1046/5124570482_a1e26b3967_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124570482)
 
 
 
-[![](http://static.flickr.com/4059/5119545619_0d396a859a_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5119545619)
+[![](http://static.flickr.com/4059/5119545619_0d396a859a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5119545619)
 
 
 
@@ -91,11 +91,11 @@ From the summit of Sgurr Coire nan Eiricheallach you get a great view up to the 
 
 
 
-[![](http://static.flickr.com/4013/5124574000_5772747d2d_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124574000)
+[![](http://static.flickr.com/4013/5124574000_5772747d2d_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124574000)
 
 
 
-[![](http://farm2.static.flickr.com/1326/5124577248_b9d1919c51_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124577248)
+[![](http://farm2.static.flickr.com/1326/5124577248_b9d1919c51_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124577248)
 
 
 
@@ -103,15 +103,15 @@ We made our way towards it, following the well worn track that keeps close to th
 
 
 
-[![](http://static.flickr.com/4009/5123989355_4b2ee60549_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123989355)
+[![](http://static.flickr.com/4009/5123989355_4b2ee60549_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123989355)
 
 
 
-[![](http://farm5.static.flickr.com/4147/5123977797_7a3561be92_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123977797)
+[![](http://farm5.static.flickr.com/4147/5123977797_7a3561be92_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123977797)
 
 
 
-[![](http://static.flickr.com/4065/5124601684_10b7a9d702_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124601684)
+[![](http://static.flickr.com/4065/5124601684_10b7a9d702_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124601684)
 
 
 
@@ -119,15 +119,15 @@ The final slope up to the rocky eastern col was very steep and covered in powder
 
 
 
-[![](http://farm5.static.flickr.com/4087/5124613778_cb47c6174a_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124613778)
+[![](http://farm5.static.flickr.com/4087/5124613778_cb47c6174a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124613778)
 
 
 
-[![](http://static.flickr.com/4027/5119908949_891fb9eb98_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5119908949)
+[![](http://static.flickr.com/4027/5119908949_891fb9eb98_b.jpg)](http://www.flickr.com/photos/53725815@N00/5119908949)
 
 
 
-[![](http://farm2.static.flickr.com/1379/5124620934_c5d7f1703a_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124620934)
+[![](http://farm2.static.flickr.com/1379/5124620934_c5d7f1703a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124620934)
 
 
 
@@ -135,11 +135,11 @@ It was a delight to climb up the final snow-covered slope to where the summit ca
 
 
 
-[![](http://static.flickr.com/4088/5123271729_8c1243a407_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123271729)
+[![](http://static.flickr.com/4088/5123271729_8c1243a407_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123271729)
 
 
 
-[![](http://farm5.static.flickr.com/4007/5123937039_86df424a0a_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123937039)
+[![](http://farm5.static.flickr.com/4007/5123937039_86df424a0a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5123937039)
 
 
 
@@ -147,15 +147,15 @@ The views were simply incredible. This summit occupies an enviable position, com
 
 
 
-[![](http://static.flickr.com/4035/5120486761_824a4727a9_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5120486761)
+[![](http://static.flickr.com/4035/5120486761_824a4727a9_b.jpg)](http://www.flickr.com/photos/53725815@N00/5120486761)
 
 
 
-[![](http://static.flickr.com/4021/5120511367_e7974fe43f_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5120511367)
+[![](http://static.flickr.com/4021/5120511367_e7974fe43f_b.jpg)](http://www.flickr.com/photos/53725815@N00/5120511367)
 
 
 
-[![](http://static.flickr.com/4060/5120515505_859f5c7dc8_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5120515505)
+[![](http://static.flickr.com/4060/5120515505_859f5c7dc8_b.jpg)](http://www.flickr.com/photos/53725815@N00/5120515505)
 
 
 
@@ -163,15 +163,15 @@ Once everyone had gathered on the summit the celebrations could begin. Various p
 
 
 
-[![](http://static.flickr.com/1346/5120479809_c487a69701_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5120479809)
+[![](http://static.flickr.com/1346/5120479809_c487a69701_b.jpg)](http://www.flickr.com/photos/53725815@N00/5120479809)
 
 
 
-[![](http://farm2.static.flickr.com/1151/5125499208_86c4e422c7_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125499208)
+[![](http://farm2.static.flickr.com/1151/5125499208_86c4e422c7_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125499208)
 
 
 
-[![](http://farm5.static.flickr.com/4024/5125496902_a073f0e509_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125496902)
+[![](http://farm5.static.flickr.com/4024/5125496902_a073f0e509_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125496902)
 
 
 
@@ -179,11 +179,11 @@ After the celebrations it was time to continue with the traverse. Although there
 
 
 
-[![](http://farm5.static.flickr.com/4008/5124896221_fc7e436f3e_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124896221)
+[![](http://farm5.static.flickr.com/4008/5124896221_fc7e436f3e_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124896221)
 
 
 
-[![](http://farm5.static.flickr.com/4064/5125504090_852f8bdf21_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125504090)
+[![](http://farm5.static.flickr.com/4064/5125504090_852f8bdf21_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125504090)
 
 
 
@@ -191,7 +191,7 @@ The feeling of space on this part of the hike was quite incredible. All around u
 
 
 
-[![](http://farm2.static.flickr.com/1108/5124900841_be71efe308_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124900841)
+[![](http://farm2.static.flickr.com/1108/5124900841_be71efe308_b.jpg)](http://www.flickr.com/photos/53725815@N00/5124900841)
 
 
 
@@ -199,7 +199,7 @@ The initial descent from Sgurr a' Mhaoraich is steep and stony, a faint path pic
 
 
 
-[![](http://farm5.static.flickr.com/4040/5126538008_5ae2493c74_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126538008)
+[![](http://farm5.static.flickr.com/4040/5126538008_5ae2493c74_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126538008)
 
 
 
@@ -207,11 +207,11 @@ At the bealach we paused briefly before continuing up the more gentle incline to
 
 
 
-[![](http://farm5.static.flickr.com/4144/5111982747_3ff90622b3_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5111982747)
+[![](http://farm5.static.flickr.com/4144/5111982747_3ff90622b3_b.jpg)](http://www.flickr.com/photos/53725815@N00/5111982747)
 
 
 
-[![](http://farm5.static.flickr.com/4058/5125936671_7ace78b8ff_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125936671)
+[![](http://farm5.static.flickr.com/4058/5125936671_7ace78b8ff_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125936671)
 
 
 
@@ -219,11 +219,11 @@ After this people started to pick their own way down off the hill. My own route 
 
 
 
-[![](http://farm5.static.flickr.com/4027/5126454228_64150011f3_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126454228)
+[![](http://farm5.static.flickr.com/4027/5126454228_64150011f3_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126454228)
 
 
 
-[![](http://farm5.static.flickr.com/4151/5125844571_e51ff5a3f6_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125844571)
+[![](http://farm5.static.flickr.com/4151/5125844571_e51ff5a3f6_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125844571)
 
 
 
@@ -231,15 +231,15 @@ Layers were lost as we eventually picked up a boggy path that followed the strea
 
 
 
-[![](http://farm2.static.flickr.com/1387/5126471256_d7b890fce3_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126471256)
+[![](http://farm2.static.flickr.com/1387/5126471256_d7b890fce3_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126471256)
 
 
 
-[![](http://farm2.static.flickr.com/1405/5125856923_69da08458f_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125856923)
+[![](http://farm2.static.flickr.com/1405/5125856923_69da08458f_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125856923)
 
 
 
-[![](http://farm2.static.flickr.com/1067/5126478698_8e6732456f_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126478698)
+[![](http://farm2.static.flickr.com/1067/5126478698_8e6732456f_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126478698)
 
 
 
@@ -247,11 +247,11 @@ The going along the rolling road was enlivened by the sighting of an eagle (or s
 
 
 
-[![](http://farm5.static.flickr.com/4062/5126488138_61b953b3df_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126488138)
+[![](http://farm5.static.flickr.com/4062/5126488138_61b953b3df_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126488138)
 
 
 
-[![](http://farm2.static.flickr.com/1355/5125886435_20a7704ded_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125886435)
+[![](http://farm2.static.flickr.com/1355/5125886435_20a7704ded_b.jpg)](http://www.flickr.com/photos/53725815@N00/5125886435)
 
 
 
@@ -259,11 +259,11 @@ We now had a long wait for the rest of the group to get back. Everyone had got q
 
 
 
-[![](http://farm2.static.flickr.com/1328/5126501740_1f5294e205_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126501740)
+[![](http://farm2.static.flickr.com/1328/5126501740_1f5294e205_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126501740)
 
 
 
-[![](http://farm2.static.flickr.com/1253/5126499576_371953aa70_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126499576)
+[![](http://farm2.static.flickr.com/1253/5126499576_371953aa70_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126499576)
 
 
 
@@ -271,11 +271,11 @@ The drive back was just as twisty as the way in had been but now we stopped a co
 
 
 
-[![](http://static.flickr.com/1231/5120561469_d30f9a5787_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5120561469)
+[![](http://static.flickr.com/1231/5120561469_d30f9a5787_b.jpg)](http://www.flickr.com/photos/53725815@N00/5120561469)
 
 
 
-[![](http://farm5.static.flickr.com/4053/5126504296_00f0fabecc_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126504296)
+[![](http://farm5.static.flickr.com/4053/5126504296_00f0fabecc_b.jpg)](http://www.flickr.com/photos/53725815@N00/5126504296)
 
 
 
