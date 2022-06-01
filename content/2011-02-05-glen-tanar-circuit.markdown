@@ -19,7 +19,7 @@ The car park at Milltimber, just short of Glen Tanar house, was empty until our 
 
 <!--more-->
 
-[![](http://farm6.static.flickr.com/5214/5419459583_f26d3487b2_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419459583)
+[![](http://farm6.static.flickr.com/5214/5419459583_f26d3487b2_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419459583)
 
 
 
@@ -27,7 +27,7 @@ Initially we followed the "Old Pine Trees" waymarked route that passes the chape
 
 
 
-[![](http://farm6.static.flickr.com/5094/5419463939_de11520e67_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419463939)
+[![](http://farm6.static.flickr.com/5094/5419463939_de11520e67_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419463939)
 
 
 
@@ -35,7 +35,7 @@ The climb through the woods was pleasant; not too boggy, and without any of the 
 
 
 
-[![](http://farm6.static.flickr.com/5177/5419466661_61401fa715_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419466661)
+[![](http://farm6.static.flickr.com/5177/5419466661_61401fa715_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419466661)
 
 
 
@@ -43,11 +43,11 @@ The track levelled off, then dropped steadily before climbing once again as the 
 
 
 
-[![](http://farm6.static.flickr.com/5251/5419465233_313d77df7d_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419465233)
+[![](http://farm6.static.flickr.com/5251/5419465233_313d77df7d_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419465233)
 
 
 
-[![](http://farm6.static.flickr.com/5298/5419343854_74677ca026_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419343854)
+[![](http://farm6.static.flickr.com/5298/5419343854_74677ca026_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419343854)
 
 
 
@@ -55,7 +55,7 @@ I arrived first and dropped my sack to enjoy an easy scramble up the tumble of b
 
 
 
-[![](http://farm6.static.flickr.com/5174/5420076970_753fa84305_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420076970)
+[![](http://farm6.static.flickr.com/5174/5420076970_753fa84305_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420076970)
 
 
 
@@ -63,15 +63,15 @@ From here the views were expansive. Nearby the hills above Glen Tanar stretched 
 
 
 
-[![](http://farm6.static.flickr.com/5139/5419475267_f091e70862_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419475267)
+[![](http://farm6.static.flickr.com/5139/5419475267_f091e70862_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419475267)
 
 
 
-[![](http://farm6.static.flickr.com/5258/5419476475_2fd77e5546_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419476475)
+[![](http://farm6.static.flickr.com/5258/5419476475_2fd77e5546_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419476475)
 
 
 
-[![](http://farm6.static.flickr.com/5296/5420074512_bac14d30f1_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420074512)
+[![](http://farm6.static.flickr.com/5296/5420074512_bac14d30f1_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420074512)
 
 
 
@@ -79,11 +79,11 @@ The others gradually made it to the top and then we dropped off the summit to se
 
 
 
-[![](http://farm6.static.flickr.com/5140/5419349836_07f660d112_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419349836)
+[![](http://farm6.static.flickr.com/5140/5419349836_07f660d112_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419349836)
 
 
 
-[![](http://farm6.static.flickr.com/5212/5418742433_b03e56998f_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5418742433)
+[![](http://farm6.static.flickr.com/5212/5418742433_b03e56998f_b.jpg)](http://www.flickr.com/photos/53725815@N00/5418742433)
 
 
 
@@ -91,11 +91,11 @@ From here we went up onto the summit proper for a few photos and to take in the 
 
 
 
-[![](http://farm6.static.flickr.com/5251/5418744717_9661ef0a36_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5418744717)
+[![](http://farm6.static.flickr.com/5251/5418744717_9661ef0a36_b.jpg)](http://www.flickr.com/photos/53725815@N00/5418744717)
 
 
 
-[![](http://farm6.static.flickr.com/5291/5418747659_ff0dfe9f7c_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5418747659)
+[![](http://farm6.static.flickr.com/5291/5418747659_ff0dfe9f7c_b.jpg)](http://www.flickr.com/photos/53725815@N00/5418747659)
 
 
 
@@ -103,11 +103,11 @@ The plan from here was to move along this short chain of hills and then drop int
 
 
 
-[![](http://farm6.static.flickr.com/5098/5420082284_6eae3750e5_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420082284)
+[![](http://farm6.static.flickr.com/5098/5420082284_6eae3750e5_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420082284)
 
 
 
-[![](http://farm6.static.flickr.com/5139/5419483041_69fb5e7d95_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419483041)
+[![](http://farm6.static.flickr.com/5139/5419483041_69fb5e7d95_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419483041)
 
 
 
@@ -115,11 +115,11 @@ The views to Lochnagar and beyond were improving as we got closer, and the sun w
 
 
 
-[![](http://farm6.static.flickr.com/5052/5420088798_01652f5806_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420088798)
+[![](http://farm6.static.flickr.com/5052/5420088798_01652f5806_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420088798)
 
 
 
-[![](http://farm6.static.flickr.com/5255/5419489815_baffbd7e07_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419489815)
+[![](http://farm6.static.flickr.com/5255/5419489815_baffbd7e07_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419489815)
 
 
 
@@ -127,19 +127,19 @@ Black Craig led to Red Craig which had a very minor cairn on its summit and gave
 
 
 
-[![](http://farm6.static.flickr.com/5098/5419494611_e008181d6c_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419494611)
+[![](http://farm6.static.flickr.com/5098/5419494611_e008181d6c_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419494611)
 
 
 
-[![](http://farm6.static.flickr.com/5171/5420100862_10fe253579_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420100862)
+[![](http://farm6.static.flickr.com/5171/5420100862_10fe253579_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420100862)
 
 
 
-[![](http://farm6.static.flickr.com/5140/5419497473_af06b01478_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419497473)
+[![](http://farm6.static.flickr.com/5140/5419497473_af06b01478_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419497473)
 
 
 
-[![](http://farm6.static.flickr.com/5014/5419506843_f4c348057b_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419506843)
+[![](http://farm6.static.flickr.com/5014/5419506843_f4c348057b_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419506843)
 
 
 
@@ -147,15 +147,15 @@ The track, icy in places but with expansive views towards the head of Glen Tanar
 
 
 
-[![](http://farm6.static.flickr.com/5300/5419490943_2fcb42d22a_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419490943)
+[![](http://farm6.static.flickr.com/5300/5419490943_2fcb42d22a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419490943)
 
 
 
-[![](http://farm6.static.flickr.com/5215/5419492017_b7796bf9bf_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419492017)
+[![](http://farm6.static.flickr.com/5215/5419492017_b7796bf9bf_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419492017)
 
 
 
-[![](http://farm6.static.flickr.com/5018/5419493181_c9bfb64004_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419493181)
+[![](http://farm6.static.flickr.com/5018/5419493181_c9bfb64004_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419493181)
 
 
 
@@ -163,11 +163,11 @@ The sun glinted off the chattering river and Mount Keen stood starkly silhouette
 
 
 
-[![](http://farm6.static.flickr.com/5212/5419354052_ca11c8bc4d_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419354052)
+[![](http://farm6.static.flickr.com/5212/5419354052_ca11c8bc4d_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419354052)
 
 
 
-[![](http://farm6.static.flickr.com/5060/5420120334_3e4f2558e3_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420120334)
+[![](http://farm6.static.flickr.com/5060/5420120334_3e4f2558e3_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420120334)
 
 
 
@@ -175,15 +175,15 @@ It was now a simple matter of walking back along the track to the car park at Mi
 
 
 
-[![](http://farm6.static.flickr.com/5180/5419518517_8d3f47d251_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419518517)
+[![](http://farm6.static.flickr.com/5180/5419518517_8d3f47d251_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419518517)
 
 
 
-[![](http://farm6.static.flickr.com/5055/5420117974_a90ba48a13_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420117974)
+[![](http://farm6.static.flickr.com/5055/5420117974_a90ba48a13_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420117974)
 
 
 
-[![](http://farm6.static.flickr.com/5295/5419521223_47db9263ef_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419521223)
+[![](http://farm6.static.flickr.com/5295/5419521223_47db9263ef_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419521223)
 
 
 
