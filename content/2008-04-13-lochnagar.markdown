@@ -17,7 +17,7 @@ Given that April is now underway, the daffodils are blooming everywhere and the 
 
 <!--more-->
 
-[![Glen Muick](http://farm4.static.flickr.com/3257/2408953966_4a6d59aed4_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/2408953966)
+[![Glen Muick](http://farm4.static.flickr.com/3257/2408953966_4a6d59aed4_b.jpg)](http://www.flickr.com/photos/53725815@N00/2408953966)
 
 
 
@@ -29,7 +29,7 @@ From here on, until we descended to almost the same point later in the afternoon
 
 
 
-[![Descent of the ladder](http://farm3.static.flickr.com/2331/2409202449_a3c2dc4fb0_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/2409202449)
+[![Descent of the ladder](http://farm3.static.flickr.com/2331/2409202449_a3c2dc4fb0_b.jpg)](http://www.flickr.com/photos/53725815@N00/2409202449)
 
 
 
@@ -53,7 +53,7 @@ As we descended the mist thinned slightly and to our left we saw the Lochan of L
 
 
 
-[![Beinn a' Bhuird](http://static.flickr.com/2058/2410057640_c879ae72e9_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/2410057640)
+[![Beinn a' Bhuird](http://static.flickr.com/2058/2410057640_c879ae72e9_b.jpg)](http://www.flickr.com/photos/53725815@N00/2410057640)
 
 
 
