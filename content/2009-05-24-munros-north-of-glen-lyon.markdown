@@ -11,7 +11,7 @@ Distance: 12 miles
 Time: 5 hours  
 Attendees: Me  
 Munros: Carn Gorm, Meall Garbh, Carn Mairg and Meall na Aighean  
-Weather: Sunny spells, cold gusting wind
+Weather: Sunny spells, cold gusting wind  
 Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/311)**
 
 

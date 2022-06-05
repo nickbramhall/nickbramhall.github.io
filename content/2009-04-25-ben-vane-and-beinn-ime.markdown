@@ -11,7 +11,7 @@ Distance: 12.5 miles
 Ascent: 1520m (4,988ft)  
 Munros: Ben Vane (916m), Beinn Ime (1011m)  
 Meteorology: Hazy sunshine, cool wind on summits, later heavy showers  
-Attendees: Many, but myself, Dave and Peter completed the walk
+Attendees: Many, but myself, Dave and Peter completed the walk  
 Route:  [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/288)**
 
 

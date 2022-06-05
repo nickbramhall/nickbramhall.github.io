@@ -2,7 +2,7 @@ Title: Beinn a' Ghlo
 Date: 2010-03-07 22:31:14
 Modified: 2010-03-07 22:31:14
 Category: The Cairngorms
-Tags: 
+Tags: munro
 Slug: beinn-a-ghlo
 Author: Nick Bramhall
 

@@ -11,7 +11,7 @@ Distance: 16.5 miles
 Time: 9 hours  
 Attendees: The Stocket Hillwalking Club  
 Munros: Braeriach  
-Weather: Cloud at 800m, high winds
+Weather: Cloud at 800m, high winds  
 Route:  [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/321)**
 
 
