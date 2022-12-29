@@ -9,7 +9,7 @@ Author: Nick Bramhall
 
 It doesn’t seem all that many years ago that only those people travelling to the far reaches of the world, places like the remote Himalaya or the Poles, had access to satellite communications technology. These satellite phones were heavy and prohibitively expensive. Now a wide range of handheld devices are available which tap into global satellite communications at a fraction of the price that a satellite phone would have cost you just a few years ago. Whilst these devices may not allow full conversations to happen when off grid, they do provide a convenient way of communicating your status (whether good or bad) back to friends and family, and, through social media, the wider world. They also offer the ability to contact emergency rescue services in locations that getting a phone signal might be impossible and for this reason are increasingly being carried by people going off into mountainous or remote areas both on land and sea.
 
-![Spot in the wild](https://dl.dropbox.com/u/20505911/websites/tms/spot-promo.jpg)
+![Spot in the wild](https://www.dropbox.com/s/gzvrwu4mn0fky2x/spot-promo.jpg?raw=1)
 
 <!--more-->
 
@@ -31,15 +31,15 @@ Whilst I head into remote mountain areas to get away from the constant stream of
 
 I have the second version of the Spot device. The original Spot was launched a few years ago with the second iteration available from 2009. The Spot Satellite GPS Messenger is a compact, standalone unit which is well suited to backpacking trips. Spot also have another device called the [Spot Connect](http://www.findmespot.com/en/index.php?cid=116) which pairs with your Smartphone and gives you more flexibility over message content. However, I try to use my phone as little as possible when out so decided the standalone unit better suited my needs.
 
-![A comparison shot of a Spot messenger, Garmin GPS unit and a HTC smartphone](https://dl.dropbox.com/u/20505911/websites/tms/spot-comparison2.jpg)
+![A comparison shot of a Spot messenger, Garmin GPS unit and a HTC smartphone](https://www.dropbox.com/s/e5b2gt4nozuyok3/spot-comparison2.jpg?raw=1)
 
 The unit is reasonably compact, measuring 94x66x25 mm and weighs in at 120g with the three Lithium AAA batteries installed. It compares well to my Garmin GPS device and my Smartphone as shown above. Spot recommend mounting the unit facing directly up to the sky and I have found that I can slip it into the hydration tube strap on either my camping or day sack to achieve this (see below). The unit is supplied with a small case and strap designed to be worn as an armband but I prefer having it attached to my pack.
 
-![Spot mounted on my rucksack](https://dl.dropbox.com/u/20505911/websites/tms/spot-strapped.jpg)
+![Spot mounted on my rucksack](https://www.dropbox.com/s/bs08jamoow120vj/spot-strapped.jpg?raw=1)
 
 The unit itself has a basic interface which I will describe more thoroughly below, but you configure and manage the device through the web interface provided at [www.findmespot.com](www.findmespot.com). This is where you activate the device, add services, define your messages and add contacts. Using the web interface you can also view a history of your tracking and messages and download these in various formats, including KML and GPX. The web interface also allows you to set up a map to share with friends and family (and it is this map that provides information to Social Hiking).
 
-![The Spot Website](https://dl.dropbox.com/u/20505911/websites/tms/spot-website-overview.png)
+![The Spot Website](https://www.dropbox.com/s/pzg6chpcb4glcl0/spot-website-overview.png?raw=1)
 
 ## Subscriptions and Services
 
@@ -57,7 +57,7 @@ The Spot 2 device is intended to be rugged and straight forward to use. It prese
 
 As an aside, I think I’m so conditioned to a world of touch screens and detailed feedback now that the very basic Spot interface actually took me a few moments to get to grips with!
 
-![The Spot](https://dl.dropbox.com/u/20505911/websites/tms/spot-overview1.jpg)
+![The Spot](https://www.dropbox.com/s/64jirxu5q4dvjzh/spot-overview1.jpg?raw=1)
 
 The user inputs to Spot through the four buttons on the front of the unit. These lack positive feedback, especially when wearing thicker gloves or mitts, so I have gotten into the habit of holding them down for a count of 5 to make sure my press registers. I imagine that they are designed like this to reduce the likelihood of accidental activation but it would be good if they were just a little bit larger in future.
 
@@ -79,13 +79,13 @@ When out I have typically been sending an ok/check-in message when setting out, 
 
 I’ve now used Spot for three different trips so this is by no means a comprehensive report, and certainly does not address reliability of the unit or battery life at present.
 
-On a [short day trip](http://tms.nickbramhall.com/blog/2012/06/here-we-go-mistaking-clouds-for-mountains/) I found Spot of limited use, especially as my route involved a lot of forest walking. In this environment some of the track points failed to register and coupled with my fast pace the resulting track was inaccurate and incomplete. However, it did rain for the whole 3.5 hours and with the Spot exposed it seemed that the watertightness of the unit was good.
+On a [short day trip](http://tms.invertedworld.co.uk/blog/2012/06/here-we-go-mistaking-clouds-for-mountains/) I found Spot of limited use, especially as my route involved a lot of forest walking. In this environment some of the track points failed to register and coupled with my fast pace the resulting track was inaccurate and incomplete. However, it did rain for the whole 3.5 hours and with the Spot exposed it seemed that the watertightness of the unit was good.
 
 [![The summit of Sgòr Gaibhre](http://farm8.staticflickr.com/7226/7173563543_e952640e39_c.jpg)](http://flic.kr/p/bVUow4 "The summit of Sgòr Gaibhre by Nick Bramhall, on Flickr")
 
-On a [three day trip through the Ben Alder mountains](http://tms.nickbramhall.com/blog/2012/06/travels-in-the-ben-alder-area-part-1/) I found the Spot excellent. I used it to update my friends and family on progress through the day and sent a final ok/check-in when I got to camp. I used the custom message to let them know I was back at the car. Spot also bounced these to Twitter where the Spot map was appended to the message. The family members who received the messages where happy to know of my progress and wellbeing. For future backpacking trips I’m going to use the custom message to check-in from camp at the end of the day, rather than sending another ok/check-in message as this is less ambiguous.
+On a [three day trip through the Ben Alder mountains](http://tms.invertedworld.co.uk/blog/2012/06/travels-in-the-ben-alder-area-part-1/) I found the Spot excellent. I used it to update my friends and family on progress through the day and sent a final ok/check-in when I got to camp. I used the custom message to let them know I was back at the car. Spot also bounced these to Twitter where the Spot map was appended to the message. The family members who received the messages where happy to know of my progress and wellbeing. For future backpacking trips I’m going to use the custom message to check-in from camp at the end of the day, rather than sending another ok/check-in message as this is less ambiguous.
 
-Finally, I had my Spot turned on for a recent [trip through Fisherfield](http://tms.nickbramhall.com/blog/2012/06/through-the-great-wilderness/). This was primarily to [update my Social Hiking map](http://www.shareyouradventure.com/map/os/nickbramhll/Corrie-Hallie-to-Kinlochewe-The-Midnight-Walk), and to test that the recently implemented tie-in to the auto-tweeting feature of Social Hiking was working, and this proved successful. I can now use the ok/check-in message and Social Hiking will Tweet on my behalf and append a link to my Social Hiking map. As Social Hiking uses Ordnance Survey mapping it is better than the Spot map which uses topographic data similar to that found in Google or Bing maps. The only slight concern on this trip was that I set Spot down at the end of the walk to send a custom message indicating we had finished. This message never transmitted although I didn’t notice any red LEDs flashing on the unit.
+Finally, I had my Spot turned on for a recent [trip through Fisherfield](http://tms.invertedworld.co.uk/blog/2012/06/through-the-great-wilderness/). This was primarily to [update my Social Hiking map](http://www.shareyouradventure.com/map/os/nickbramhll/Corrie-Hallie-to-Kinlochewe-The-Midnight-Walk), and to test that the recently implemented tie-in to the auto-tweeting feature of Social Hiking was working, and this proved successful. I can now use the ok/check-in message and Social Hiking will Tweet on my behalf and append a link to my Social Hiking map. As Social Hiking uses Ordnance Survey mapping it is better than the Spot map which uses topographic data similar to that found in Google or Bing maps. The only slight concern on this trip was that I set Spot down at the end of the walk to send a custom message indicating we had finished. This message never transmitted although I didn’t notice any red LEDs flashing on the unit.
 
 ##Updated Spot Field Testing
 
@@ -105,7 +105,7 @@ Brian Green has [posted about a recent negative experience with Spot](http://www
 
 The limitations of the Spots tracking are largely only apparent on shorter trips. The ten minute gap, particularly if a couple of the transmissions are interrupted for some reason (e.g. being in a dense forest) can mean a significant portion of your track is missing. Spot does retain the last two positions and transmits these but if the problem was obtaining GPS lock in the first place then this doesn’t help. The ten minute interval also means that your track  can be dramatically smoother than the going actually was on the ground. 
 
-![Spot tracking (on the left) produces a less accurate track than my GPS device (on the right)](https://dl.dropbox.com/u/20505911/websites/tms/spot-gps-comparison.jpg)
+![Spot tracking (on the left) produces a less accurate track than my GPS device (on the right)](https://www.dropbox.com/s/dgna4mmpnotktjc/spot-gps-comparison.jpg?raw=1)
 
 Additionally Spot does not know or record elevation data and so you have to go through and add this in later if you wish to produce an elevation profile or calculate total ascent based on only the Spot tracking data. 
 
@@ -121,7 +121,7 @@ Otherwise the Spot deliberately has a good deal of redundancy built into its pro
 
 Integration with the media-rich live mapping website [Social Hiking](http://www.shareyouradventure.com) is very good. Instructions on how to use Spot are available through [Social Hiking’s documentation](http://www.shareyouradventure.com/blog/2012/04/22/setting-up-social-hiking-for-the-tgo-challenge/). It’s worth noting that it took a short while for Social Hiking to recognise my Spot map. I assume this was to do with the Spot end refreshing its database or generating the public feed but am not entirely sure. Suffice it to say after a few minutes the error message that appeared in the Social Hiking interface disappeared and I had confirmation that my Spot map was correctly configured.
 
-![https://twitter.com/nickbramhll/status/216501185602011136](https://dl.dropbox.com/u/20505911/websites/tms/sh-tweet.png)
+![https://twitter.com/nickbramhll/status/216501185602011136](https://www.dropbox.com/s/qu0fhx70j6wrmnx/sh-tweet.png?raw=1)
 
 I used Spot tracking throughout my Ben Alder trip and on returning home found that I had an excellent recorded track. I also was able to see that Social Hiking had tweeted the start of my map each day. A new feature that has recently been rolled out means that whenever I send an ok/check-in message my Social Hiking map will get amended to give context to the check-in. The above Tweet was sent towards the end of my walk through Fisherfield.
 
