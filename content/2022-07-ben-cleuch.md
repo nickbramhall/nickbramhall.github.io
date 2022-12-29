@@ -20,7 +20,7 @@ Hills: Ben Cleuch
 Weather: Incredibly warm summer's evening  
 Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/528)**
 
-The day had been scorchingly hot, and even at 8pm it was still in the mid-20s. The sun was shining and the cloud streaky with cirrus clouds 
+The day had been scorchingly hot, and even at 8pm it was still in the mid-20s. The sun was shining and the evening sky streaked with wispy cirrus clouds 
 
 The sun was already behind the hills so it meant the first part of the run along the path above the Mill Glen and then the steep lower slopes of the Law was mercifully shaded.
 
