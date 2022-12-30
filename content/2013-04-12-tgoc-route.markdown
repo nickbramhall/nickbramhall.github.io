@@ -26,7 +26,7 @@ Those minor queries have now been addressed and what follows is a brief overview
 
 ##Stage 1 - Plockton to Fort Augustus (5 days)
 
-![Stage 1 Route](https://dl.dropboxusercontent.com/u/20505911/websites/tms/map-stage1.jpg)
+![Stage 1 Route](https://www.dropbox.com/s/6lvf5efk39xqimm/map-stage1.jpg?raw=1)
 
 After crossing Scotland from east to west on the train and fueling up with a pub lunch at the Plockton Hotel I’ll set off from the picturesque west coast village heading eastward. The first day is a lowish route along tracks and paths and over some open, boggy ground to reach the River Ling for my first wild camp of the trip. This leads on to what should be a glorious day crossing the two Corbetts that rise above Killilan before dropping down to the end of Loch Mullardoch for a second wild camp. 
 
@@ -38,7 +38,7 @@ Day three should be another great day with the high hills of western Glen Affric
 
 ##Stage 2 - Fort Augustus to Aviemore (3 days)
 
-![Stage 2 Route](https://dl.dropboxusercontent.com/u/20505911/websites/tms/map-stage2.jpg)
+![Stage 2 Route](https://www.dropbox.com/s/ylxss03ceham90b/map-stage2.jpg?raw=1)
 
 After a comfortable night in Fort Augustus I’ll set off into the Monadhliath Mountains stocked up with whatever delicacies I can find in the local grocery store. Many people choose to post themselves food to collect at campsites or hostels but  I’m fairly sure I’ll survive well enough on store-bought couscous and pasta for a few days. Of course this food will be a bit bulkier and a bit heavier but the following stages are shorter so it shouldn’t be too much of a burden.
 
@@ -52,7 +52,7 @@ On the third day I have a short run down into Aviemore where I have booked into 
 
 ##Stage 3 - Aviemore to Ballater (3 days)
 
-![Stage 3 Route](https://dl.dropboxusercontent.com/u/20505911/websites/tms/map-stage3.jpg)
+![Stage 3 Route](https://www.dropbox.com/s/0u9yw15m21zdlig/map-stage3.jpg?raw=1)
 
 [![Lurcher's Crag](http://farm9.staticflickr.com/8440/7751183454_fb4fa522fd_b.jpg)](http://flic.kr/p/cNWQN3 "Lurcher's Crag by Nick Bramhall, on Flickr")
 
@@ -64,7 +64,7 @@ The third day takes me further along the Gairn before leaving the glen to traver
 
 ##Stage 4 - Ballater to St Cyrus (3 days)
 
-![Stage 4 Route](https://dl.dropboxusercontent.com/u/20505911/websites/tms/map-stage4.jpg)
+![Stage 4 Route](https://www.dropbox.com/s/jn0corhwhbf3crg/map-stage4.jpg?raw=1)
 
 [![The Road Goes Ever On](http://farm3.staticflickr.com/2068/2338683500_3c03482bd3_b.jpg)](http://flic.kr/p/4yEn8j "The Road Goes Ever On by Nick Bramhall, on Flickr")
 
