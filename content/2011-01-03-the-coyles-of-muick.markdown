@@ -31,7 +31,7 @@ Once I was sorted with boots and bag, I joined the rest of the troops and we hea
 
 
 
-[![Frozen Loch Ullachie](https://live.staticflickr.com/5241/5320364531_c169f6134d_b.jpg "Frozen Loch Ullachie")](https://www.flickr.com/photos/black_friction/5320364531/)
+[![Frozen Loch Ullachie](https://live.staticflickr.com/5241/5320364531_c169f6134d_b.jpg "Frozen Loch Ullachie")](https://www.flickr.com/photos/black_friction/5320364531/))
 
 
 
@@ -39,7 +39,7 @@ No-one was foolish enough to try their luck on the ice though and we soon moved 
 
 
 
-[![Forest track](https://live.staticflickr.com/5246/5320974542_21ff4aa957_b.jpg "Forest track")](https://www.flickr.com/photos/black_friction/5320974542/)
+[![Forest track](https://live.staticflickr.com/5246/5320974542_21ff4aa957_b.jpg "Forest track")](https://www.flickr.com/photos/black_friction/5320974542/))
 
 
 
@@ -47,7 +47,7 @@ We paused at the edge of the forest for a quick brew before taking to the open h
 
 
 
-[![Snow storms over Lochnagar](https://live.staticflickr.com/5244/5320732300_c3358ed675_b.jpg "Snow storms over Lochnagar")](https://www.flickr.com/photos/black_friction/5320732300/)
+[![Snow storms over Lochnagar](https://live.staticflickr.com/5244/5320732300_c3358ed675_b.jpg "Snow storms over Lochnagar")](https://www.flickr.com/photos/black_friction/5320732300/))
 
 
 
@@ -55,7 +55,7 @@ As we climbed towards Meall Dubh we also got a fleeting sighting of a couple of 
 
 
 
-[![Hunter or hunted?](https://live.staticflickr.com/5205/5320748290_d4db86e8d9_b.jpg "Hunter or hunted?")](https://www.flickr.com/photos/black_friction/5320748290/)
+[![Hunter or hunted?](https://live.staticflickr.com/5205/5320748290_d4db86e8d9_b.jpg "Hunter or hunted?")](https://www.flickr.com/photos/black_friction/5320748290/))
 
 
 
@@ -63,7 +63,7 @@ They moved off quickly as we approached and soon we found ourselves ascending th
 
 
 
-[![Ballater and Deeside](https://live.staticflickr.com/5086/5320410961_5bd283fb3f_b.jpg "Ballater and Deeside")](https://www.flickr.com/photos/black_friction/5320410961/)
+[![Ballater and Deeside](https://live.staticflickr.com/5086/5320410961_5bd283fb3f_b.jpg "Ballater and Deeside")](https://www.flickr.com/photos/black_friction/5320410961/))
 
 
 
@@ -71,7 +71,7 @@ From here we could also now clearly see our main target for the day: the triple 
 
 
 
-[![The Coyles of Muick](https://live.staticflickr.com/5128/5320907854_73242f5538_b.jpg "The Coyles of Muick")](https://www.flickr.com/photos/black_friction/5320907854/)
+[![The Coyles of Muick](https://live.staticflickr.com/5128/5320907854_73242f5538_b.jpg "The Coyles of Muick")](https://www.flickr.com/photos/black_friction/5320907854/))
 
 
 
@@ -79,11 +79,11 @@ We glissaded our way down to the howff below Meall Dubh where a dram of whisky w
 
 
 
-[![Walking below Meall Dubh](https://live.staticflickr.com/5202/5323886972_876bc557fb_b.jpg "Walking below Meall Dubh")](https://www.flickr.com/photos/black_friction/5323886972/)
+[![Walking below Meall Dubh](https://live.staticflickr.com/5202/5323886972_876bc557fb_b.jpg "Walking below Meall Dubh")](https://www.flickr.com/photos/black_friction/5323886972/))
 
 
 
-[![Lochnagar](https://live.staticflickr.com/5208/5323278457_fd8254b118_b.jpg "Lochnagar")](https://www.flickr.com/photos/black_friction/5323278457/)
+[![Lochnagar](https://live.staticflickr.com/5208/5323278457_fd8254b118_b.jpg "Lochnagar")](https://www.flickr.com/photos/black_friction/5323278457/))
 
 
 
@@ -91,11 +91,11 @@ The ascent was again icy, the ground hard and unforgiving but the climb was not 
 
 
 
-[![Climbing the Coyles of Muick](https://live.staticflickr.com/5041/5323285631_2699bf515c_b.jpg "Climbing the Coyles of Muick")](https://www.flickr.com/photos/black_friction/5323285631/)
+[![Climbing the Coyles of Muick](https://live.staticflickr.com/5041/5323285631_2699bf515c_b.jpg "Climbing the Coyles of Muick")](https://www.flickr.com/photos/black_friction/5323285631/))
 
 
 
-[![The eastern Coyle](https://live.staticflickr.com/5164/5323894052_fd5c535036_b.jpg "The eastern Coyle")](https://www.flickr.com/photos/black_friction/5323894052/)
+[![The eastern Coyle](https://live.staticflickr.com/5164/5323894052_fd5c535036_b.jpg "The eastern Coyle")](https://www.flickr.com/photos/black_friction/5323894052/))
 
 
 
@@ -103,11 +103,11 @@ On the east summit, which we visited first, there is a large cairn which gives v
 
 
 
-[![View back to Deeside](https://live.staticflickr.com/5210/5323897696_00e9d9b1e3_b.jpg "View back to Deeside")](https://www.flickr.com/photos/black_friction/5323897696/)
+[![View back to Deeside](https://live.staticflickr.com/5210/5323897696_00e9d9b1e3_b.jpg "View back to Deeside")](https://www.flickr.com/photos/black_friction/5323897696/))
 
 
 
-[![The Coyles summit](https://live.staticflickr.com/5002/5323905048_6cc771514d_b.jpg "The Coyles summit")](https://www.flickr.com/photos/black_friction/5323905048/)
+[![The Coyles summit](https://live.staticflickr.com/5002/5323905048_6cc771514d_b.jpg "The Coyles summit")](https://www.flickr.com/photos/black_friction/5323905048/))
 
 
 
@@ -115,15 +115,15 @@ We then crossed to the true summit which had superb views of Lochnagar, once mor
 
 
 
-[![Part-frozen Loch Muick](https://live.staticflickr.com/5207/5323908586_524ca81075_b.jpg "Part-frozen Loch Muick")](https://www.flickr.com/photos/black_friction/5323908586/)
+[![Part-frozen Loch Muick](https://live.staticflickr.com/5207/5323908586_524ca81075_b.jpg "Part-frozen Loch Muick")](https://www.flickr.com/photos/black_friction/5323908586/))
 
 
 
-[![Lochnagar](https://live.staticflickr.com/5283/5323924008_b935957905_b.jpg "Lochnagar")](https://www.flickr.com/photos/black_friction/5323924008/)
+[![Lochnagar](https://live.staticflickr.com/5283/5323924008_b935957905_b.jpg "Lochnagar")](https://www.flickr.com/photos/black_friction/5323924008/))
 
 
 
-[![The Coyles of Muick](https://live.staticflickr.com/5208/5323927658_5c95ae57b6_b.jpg "The Coyles of Muick")](https://www.flickr.com/photos/black_friction/5323927658/)
+[![The Coyles of Muick](https://live.staticflickr.com/5208/5323927658_5c95ae57b6_b.jpg "The Coyles of Muick")](https://www.flickr.com/photos/black_friction/5323927658/))
 
 
 
@@ -131,15 +131,15 @@ We didn't however stay long on the summit to enjoy the views. The wind was bitin
 
 
 
-[![Descending the Coyles](https://live.staticflickr.com/5285/5323934788_ec3ec6816d_b.jpg "Descending the Coyles")](https://www.flickr.com/photos/black_friction/5323934788/)
+[![Descending the Coyles](https://live.staticflickr.com/5285/5323934788_ec3ec6816d_b.jpg "Descending the Coyles")](https://www.flickr.com/photos/black_friction/5323934788/))
 
 
 
-[![Summit of the Coyles](https://live.staticflickr.com/5289/5323336785_40af33c53f_b.jpg "Summit of the Coyles")](https://www.flickr.com/photos/black_friction/5323336785/)
+[![Summit of the Coyles](https://live.staticflickr.com/5289/5323336785_40af33c53f_b.jpg "Summit of the Coyles")](https://www.flickr.com/photos/black_friction/5323336785/))
 
 
 
-[![Loch Muick](https://live.staticflickr.com/5008/5323340825_ba5a7f912d_b.jpg "Loch Muick")](https://www.flickr.com/photos/black_friction/5323340825/)
+[![Loch Muick](https://live.staticflickr.com/5008/5323340825_ba5a7f912d_b.jpg "Loch Muick")](https://www.flickr.com/photos/black_friction/5323340825/))
 
 
 
@@ -147,7 +147,7 @@ We paused briefly in the still woods to have a bite of lunch but the penetrating
 
 
 
-[![The track through the Alltcailleach Forest](https://live.staticflickr.com/5246/5323949258_4bd4574c2e_b.jpg "The track through the Alltcailleach Forest")](https://www.flickr.com/photos/black_friction/5323949258/)
+[![The track through the Alltcailleach Forest](https://live.staticflickr.com/5246/5323949258_4bd4574c2e_b.jpg "The track through the Alltcailleach Forest")](https://www.flickr.com/photos/black_friction/5323949258/))
 
 
 
@@ -155,11 +155,11 @@ The walk out, sheltered from the wind, was pleasant and from time to time the fo
 
 
 
-[![The Coyles of Muick](https://live.staticflickr.com/5046/5323347703_8d9d1ce204_b.jpg "The Coyles of Muick")](https://www.flickr.com/photos/black_friction/5323347703/)
+[![The Coyles of Muick](https://live.staticflickr.com/5046/5323347703_8d9d1ce204_b.jpg "The Coyles of Muick")](https://www.flickr.com/photos/black_friction/5323347703/))
 
 
 
-[![Towards Morvern and Ballater](https://live.staticflickr.com/5089/5323351125_519049fa11_b.jpg "Towards Morvern and Ballater")](https://www.flickr.com/photos/black_friction/5323351125/)
+[![Towards Morvern and Ballater](https://live.staticflickr.com/5089/5323351125_519049fa11_b.jpg "Towards Morvern and Ballater")](https://www.flickr.com/photos/black_friction/5323351125/))
 
 
 

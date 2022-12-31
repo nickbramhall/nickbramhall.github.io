@@ -25,7 +25,7 @@ At 8:20am I parked in the lay-by opposite the red telephone box which marks the 
 
 
 
-[![Main road through Achnashellach](https://live.staticflickr.com/4035/4344075006_29486ce81c_b.jpg "Main road through Achnashellach")](https://www.flickr.com/photos/black_friction/4344075006/)
+[![Main road through Achnashellach](https://live.staticflickr.com/4035/4344075006_29486ce81c_b.jpg "Main road through Achnashellach")](https://www.flickr.com/photos/black_friction/4344075006/))
 
 
 
@@ -33,7 +33,7 @@ The chill of the morning began to lift as I booted up and headed, by way of the 
 
 
 
-[![Fuar Tholl](https://live.staticflickr.com/4038/4339345004_d1ebf4f421_b.jpg "Fuar Tholl")](https://www.flickr.com/photos/black_friction/4339345004/)
+[![Fuar Tholl](https://live.staticflickr.com/4038/4339345004_d1ebf4f421_b.jpg "Fuar Tholl")](https://www.flickr.com/photos/black_friction/4339345004/))
 
 
 
@@ -45,7 +45,7 @@ To my left the view of Fuar Tholl was constantly evolving, and then peaking over
 
 
 
-[![Approaching Coire Lair](https://live.staticflickr.com/4072/4343372535_9d950e75e6_b.jpg "Approaching Coire Lair")](https://www.flickr.com/photos/black_friction/4343372535/)
+[![Approaching Coire Lair](https://live.staticflickr.com/4072/4343372535_9d950e75e6_b.jpg "Approaching Coire Lair")](https://www.flickr.com/photos/black_friction/4343372535/))
 
 
 
@@ -53,11 +53,11 @@ At this time the cloud level was still around 870m with the summits of both the 
 
 
 
-[![Sgorr Ruadh from the Coire Lair track](https://live.staticflickr.com/2765/4343380851_ce69b6f01e_b.jpg "Sgorr Ruadh from the Coire Lair track")](https://www.flickr.com/photos/black_friction/4343380851/)
+[![Sgorr Ruadh from the Coire Lair track](https://live.staticflickr.com/2765/4343380851_ce69b6f01e_b.jpg "Sgorr Ruadh from the Coire Lair track")](https://www.flickr.com/photos/black_friction/4343380851/))
 
 
 
-[![The burn in Coire Lair](https://live.staticflickr.com/4071/4343395351_9746c5f6d4_b.jpg "The burn in Coire Lair")](https://www.flickr.com/photos/black_friction/4343395351/)
+[![The burn in Coire Lair](https://live.staticflickr.com/4071/4343395351_9746c5f6d4_b.jpg "The burn in Coire Lair")](https://www.flickr.com/photos/black_friction/4343395351/))
 
 
 
@@ -65,11 +65,11 @@ As I climbed the path the snow became more persistent and harder. Luckily a set 
 
 
 
-[![Looking back from the head of Coire Lair](https://live.staticflickr.com/4034/4344141654_17bfac76b0_b.jpg "Looking back from the head of Coire Lair")](https://www.flickr.com/photos/black_friction/4344141654/)
+[![Looking back from the head of Coire Lair](https://live.staticflickr.com/4034/4344141654_17bfac76b0_b.jpg "Looking back from the head of Coire Lair")](https://www.flickr.com/photos/black_friction/4344141654/))
 
 
 
-[![Sgorr Ruadh](https://live.staticflickr.com/2681/4343423097_1eac9caeb4_b.jpg "Sgorr Ruadh")](https://www.flickr.com/photos/black_friction/4343423097/)
+[![Sgorr Ruadh](https://live.staticflickr.com/2681/4343423097_1eac9caeb4_b.jpg "Sgorr Ruadh")](https://www.flickr.com/photos/black_friction/4343423097/))
 
 
 
@@ -77,7 +77,7 @@ My excitement peaked as I started to climb up to the top of a small bump (Beinn 
 
 
 
-[![Beinn Alligin](https://live.staticflickr.com/2607/4343418023_68725ab69f_b.jpg "Beinn Alligin")](https://www.flickr.com/photos/black_friction/4343418023/)
+[![Beinn Alligin](https://live.staticflickr.com/2607/4343418023_68725ab69f_b.jpg "Beinn Alligin")](https://www.flickr.com/photos/black_friction/4343418023/))
 
 
 
@@ -85,15 +85,15 @@ I paused here for several photos and to strap on my crampons. The track turned t
 
 
 
-[![The ridge of Beinn Liath Mhor](https://live.staticflickr.com/4044/4342223552_39f619272a_b.jpg "The ridge of Beinn Liath Mhor")](https://www.flickr.com/photos/black_friction/4342223552/)
+[![The ridge of Beinn Liath Mhor](https://live.staticflickr.com/4044/4342223552_39f619272a_b.jpg "The ridge of Beinn Liath Mhor")](https://www.flickr.com/photos/black_friction/4342223552/))
 
 
 
-[![Coire Lair from the South Top](https://live.staticflickr.com/4020/4343438169_06d415c50d_b.jpg "Coire Lair from the South Top")](https://www.flickr.com/photos/black_friction/4343438169/)
+[![Coire Lair from the South Top](https://live.staticflickr.com/4020/4343438169_06d415c50d_b.jpg "Coire Lair from the South Top")](https://www.flickr.com/photos/black_friction/4343438169/))
 
 
 
-[![Beinn Damh](https://live.staticflickr.com/4039/4344186182_0cf109f7e6_b.jpg "Beinn Damh")](https://www.flickr.com/photos/black_friction/4344186182/)
+[![Beinn Damh](https://live.staticflickr.com/4039/4344186182_0cf109f7e6_b.jpg "Beinn Damh")](https://www.flickr.com/photos/black_friction/4344186182/))
 
 
 
@@ -105,7 +105,7 @@ At the top of the terraces I had the joyful view up to the summit of Liath Mhor,
 
 
 
-[![Towards the summit of Beinn Liath Mhor](https://live.staticflickr.com/4042/4343459623_34b66f55f0_b.jpg "Towards the summit of Beinn Liath Mhor")](https://www.flickr.com/photos/black_friction/4343459623/)
+[![Towards the summit of Beinn Liath Mhor](https://live.staticflickr.com/4042/4343459623_34b66f55f0_b.jpg "Towards the summit of Beinn Liath Mhor")](https://www.flickr.com/photos/black_friction/4343459623/))
 
 
 
@@ -113,7 +113,7 @@ Almost exactly on midday I clambered up to the frost-wrapped cairn which marks t
 
 
 
-[![The Torridon Hills](https://live.staticflickr.com/2736/4338763154_22baf9b37b_b.jpg "The Torridon Hills")](https://www.flickr.com/photos/black_friction/4338763154/)
+[![The Torridon Hills](https://live.staticflickr.com/2736/4338763154_22baf9b37b_b.jpg "The Torridon Hills")](https://www.flickr.com/photos/black_friction/4338763154/))
 
 
 
@@ -121,11 +121,11 @@ After hot, sweet black tea, sandwiches and a chocolate bar it was time to be mov
 
 
 
-[![The Ridge of Beinn Liath Mhor](https://live.staticflickr.com/4015/4338012675_d217a04cf8_b.jpg "The Ridge of Beinn Liath Mhor")](https://www.flickr.com/photos/black_friction/4338012675/)
+[![The Ridge of Beinn Liath Mhor](https://live.staticflickr.com/4015/4338012675_d217a04cf8_b.jpg "The Ridge of Beinn Liath Mhor")](https://www.flickr.com/photos/black_friction/4338012675/))
 
 
 
-[![The summit of Beinn Liath Mhor](https://live.staticflickr.com/4021/4338374769_691dc0a4ac_b.jpg "The summit of Beinn Liath Mhor")](https://www.flickr.com/photos/black_friction/4338374769/)
+[![The summit of Beinn Liath Mhor](https://live.staticflickr.com/4021/4338374769_691dc0a4ac_b.jpg "The summit of Beinn Liath Mhor")](https://www.flickr.com/photos/black_friction/4338374769/))
 
 
 
@@ -133,11 +133,11 @@ The ridge itself gives airy views all around and whilst I was captivated by the 
 
 
 
-[![The head of Coire Lair](https://live.staticflickr.com/4008/4338027245_c10219cd96_b.jpg "The head of Coire Lair")](https://www.flickr.com/photos/black_friction/4338027245/)
+[![The head of Coire Lair](https://live.staticflickr.com/4008/4338027245_c10219cd96_b.jpg "The head of Coire Lair")](https://www.flickr.com/photos/black_friction/4338027245/))
 
 
 
-[![Looking down to Loch Coire Lair](https://live.staticflickr.com/2694/4338998712_ef4c6c4a7f_b.jpg "Looking down to Loch Coire Lair")](https://www.flickr.com/photos/black_friction/4338998712/)
+[![Looking down to Loch Coire Lair](https://live.staticflickr.com/2694/4338998712_ef4c6c4a7f_b.jpg "Looking down to Loch Coire Lair")](https://www.flickr.com/photos/black_friction/4338998712/))
 
 
 
@@ -145,11 +145,11 @@ The weather gods were smiling on me as I reached the cairn on the eastern end of
 
 
 
-[![Fuar Tholl above Loch Coire Lair](https://live.staticflickr.com/4020/4339201568_97a20ece5c_b.jpg "Fuar Tholl above Loch Coire Lair")](https://www.flickr.com/photos/black_friction/4339201568/)
+[![Fuar Tholl above Loch Coire Lair](https://live.staticflickr.com/4020/4339201568_97a20ece5c_b.jpg "Fuar Tholl above Loch Coire Lair")](https://www.flickr.com/photos/black_friction/4339201568/))
 
 
 
-[![Shafts of sun over Loch Carron](https://live.staticflickr.com/4008/4340985387_dc40baedce_b.jpg "Shafts of sun over Loch Carron")](https://www.flickr.com/photos/black_friction/4340985387/)
+[![Shafts of sun over Loch Carron](https://live.staticflickr.com/4008/4340985387_dc40baedce_b.jpg "Shafts of sun over Loch Carron")](https://www.flickr.com/photos/black_friction/4340985387/))
 
 
 
@@ -161,11 +161,11 @@ However, without too much drama I was following the path across the lumpy ground
 
 
 
-[![Tools of the trade](https://live.staticflickr.com/4068/4344365720_94c7757644_b.jpg "Tools of the trade")](https://www.flickr.com/photos/black_friction/4344365720/)
+[![Tools of the trade](https://live.staticflickr.com/4068/4344365720_94c7757644_b.jpg "Tools of the trade")](https://www.flickr.com/photos/black_friction/4344365720/))
 
 
 
-[![Cairn in Coire Lair](https://live.staticflickr.com/4030/4344366806_1ff1de0bbc_b.jpg "Cairn in Coire Lair")](https://www.flickr.com/photos/black_friction/4344366806/)
+[![Cairn in Coire Lair](https://live.staticflickr.com/4030/4344366806_1ff1de0bbc_b.jpg "Cairn in Coire Lair")](https://www.flickr.com/photos/black_friction/4344366806/))
 
 
 
@@ -173,7 +173,7 @@ With the cloud once again shrouding the tops I paused here to stow my gear and t
 
 
 
-[![The track out](https://live.staticflickr.com/2728/4343631181_31fee80573_b.jpg "The track out")](https://www.flickr.com/photos/black_friction/4343631181/)
+[![The track out](https://live.staticflickr.com/2728/4343631181_31fee80573_b.jpg "The track out")](https://www.flickr.com/photos/black_friction/4343631181/))
 
 
 

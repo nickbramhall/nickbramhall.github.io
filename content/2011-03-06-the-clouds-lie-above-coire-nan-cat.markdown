@@ -27,11 +27,11 @@ After booting up I was quickly away, munching on the final cookie from a bag of 
 
 
 
-[![Ben Lawers National Nature Reserve](https://live.staticflickr.com/5095/5507189528_2ec9d12a29_b.jpg "Ben Lawers National Nature Reserve")](https://www.flickr.com/photos/black_friction/5507189528/)
+[![Ben Lawers National Nature Reserve](https://live.staticflickr.com/5095/5507189528_2ec9d12a29_b.jpg "Ben Lawers National Nature Reserve")](https://www.flickr.com/photos/black_friction/5507189528/))
 
 
 
-[![Sron Mhor from the Coire nan Cat track](https://live.staticflickr.com/5180/5503261183_39ac2a410a_b.jpg "Sron Mhor from the Coire nan Cat track")](https://www.flickr.com/photos/black_friction/5503261183/)
+[![Sron Mhor from the Coire nan Cat track](https://live.staticflickr.com/5180/5503261183_39ac2a410a_b.jpg "Sron Mhor from the Coire nan Cat track")](https://www.flickr.com/photos/black_friction/5503261183/))
 
 
 
@@ -39,11 +39,11 @@ After crossing a couple of stiles I was out of the forest and passing by a cheer
 
 
 
-[![The Lawers Group (somewhere in here)](https://live.staticflickr.com/5292/5503265933_6817af0f3a_b.jpg "The Lawers Group (somewhere in here)")](https://www.flickr.com/photos/black_friction/5503265933/)
+[![The Lawers Group (somewhere in here)](https://live.staticflickr.com/5292/5503265933_6817af0f3a_b.jpg "The Lawers Group (somewhere in here)")](https://www.flickr.com/photos/black_friction/5503265933/))
 
 
 
-[![The Lawers Burn and Loch Tay](https://live.staticflickr.com/5016/5503290015_8c2e3c3d81_b.jpg "The Lawers Burn and Loch Tay")](https://www.flickr.com/photos/black_friction/5503290015/)
+[![The Lawers Burn and Loch Tay](https://live.staticflickr.com/5016/5503290015_8c2e3c3d81_b.jpg "The Lawers Burn and Loch Tay")](https://www.flickr.com/photos/black_friction/5503290015/))
 
 
 
@@ -51,15 +51,15 @@ The way up was steep and a little slippy on greasy grass but I enjoyed the views
 
 
 
-[![The Lawers Group](https://live.staticflickr.com/5258/5503885994_a407d9e3db_b.jpg "The Lawers Group")](https://www.flickr.com/photos/black_friction/5503885994/)
+[![The Lawers Group](https://live.staticflickr.com/5258/5503885994_a407d9e3db_b.jpg "The Lawers Group")](https://www.flickr.com/photos/black_friction/5503885994/))
 
 
 
-[![Loch Tay from Sron Mhor](https://live.staticflickr.com/5015/5503891712_200fe30fb0_b.jpg "Loch Tay from Sron Mhor")](https://www.flickr.com/photos/black_friction/5503891712/)
+[![Loch Tay from Sron Mhor](https://live.staticflickr.com/5015/5503891712_200fe30fb0_b.jpg "Loch Tay from Sron Mhor")](https://www.flickr.com/photos/black_friction/5503891712/))
 
 
 
-[![East end of Loch Tay](https://live.staticflickr.com/5217/5506223517_300ddefc4e_b.jpg "East end of Loch Tay")](https://www.flickr.com/photos/black_friction/5506223517/)
+[![East end of Loch Tay](https://live.staticflickr.com/5217/5506223517_300ddefc4e_b.jpg "East end of Loch Tay")](https://www.flickr.com/photos/black_friction/5506223517/))
 
 
 
@@ -71,11 +71,11 @@ After a quick cup of a tea and a cereal bar I now contemplated the way forward. 
 
 
 
-[![Meall Garbh and clouds](https://live.staticflickr.com/5253/5506833256_fc6cd93c61_b.jpg "Meall Garbh and clouds")](https://www.flickr.com/photos/black_friction/5506833256/)
+[![Meall Garbh and clouds](https://live.staticflickr.com/5253/5506833256_fc6cd93c61_b.jpg "Meall Garbh and clouds")](https://www.flickr.com/photos/black_friction/5506833256/))
 
 
 
-[![Towards Lochan nan Cat](https://live.staticflickr.com/5298/5506837552_b17934fdec_b.jpg "Towards Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5506837552/)
+[![Towards Lochan nan Cat](https://live.staticflickr.com/5298/5506837552_b17934fdec_b.jpg "Towards Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5506837552/))
 
 
 
@@ -83,15 +83,15 @@ I finally reached the low point on the bealach where I got some views north into
 
 
 
-[![Blue skies (briefly)](https://live.staticflickr.com/5056/5506258115_6f1bd46a66_b.jpg "Blue skies (briefly)")](https://www.flickr.com/photos/black_friction/5506258115/)
+[![Blue skies (briefly)](https://live.staticflickr.com/5056/5506258115_6f1bd46a66_b.jpg "Blue skies (briefly)")](https://www.flickr.com/photos/black_friction/5506258115/))
 
 
 
-[![The Glen Lyon Hills](https://live.staticflickr.com/5138/5506866564_4edb773dda_b.jpg "The Glen Lyon Hills")](https://www.flickr.com/photos/black_friction/5506866564/)
+[![The Glen Lyon Hills](https://live.staticflickr.com/5138/5506866564_4edb773dda_b.jpg "The Glen Lyon Hills")](https://www.flickr.com/photos/black_friction/5506866564/))
 
 
 
-[![Meall Greigh](https://live.staticflickr.com/5139/5506277549_6de7333cca_b.jpg "Meall Greigh")](https://www.flickr.com/photos/black_friction/5506277549/)
+[![Meall Greigh](https://live.staticflickr.com/5139/5506277549_6de7333cca_b.jpg "Meall Greigh")](https://www.flickr.com/photos/black_friction/5506277549/))
 
 
 
@@ -103,7 +103,7 @@ It didn't work so I crossed the boggy ground between the two ridges and then mad
 
 
 
-[![Meall Garbh summit cairn](https://live.staticflickr.com/5296/5507051864_371ec449df_b.jpg "Meall Garbh summit cairn")](https://www.flickr.com/photos/black_friction/5507051864/)
+[![Meall Garbh summit cairn](https://live.staticflickr.com/5296/5507051864_371ec449df_b.jpg "Meall Garbh summit cairn")](https://www.flickr.com/photos/black_friction/5507051864/))
 
 
 
@@ -135,11 +135,11 @@ The cairn was deserted so I was able to make myself at home, stretching out to e
 
 
 
-[![An Stuc summit cairn](https://live.staticflickr.com/5056/5506463971_f3f07147b7_b.jpg "An Stuc summit cairn")](https://www.flickr.com/photos/black_friction/5506463971/)
+[![An Stuc summit cairn](https://live.staticflickr.com/5056/5506463971_f3f07147b7_b.jpg "An Stuc summit cairn")](https://www.flickr.com/photos/black_friction/5506463971/))
 
 
 
-[![An Stuc summit ridge](https://live.staticflickr.com/5251/5506467395_3b1262e1bd_b.jpg "An Stuc summit ridge")](https://www.flickr.com/photos/black_friction/5506467395/)
+[![An Stuc summit ridge](https://live.staticflickr.com/5251/5506467395_3b1262e1bd_b.jpg "An Stuc summit ridge")](https://www.flickr.com/photos/black_friction/5506467395/))
 
 
 
@@ -151,7 +151,7 @@ After this revitalisation I set off, now feeling much happier and ready to head 
 
 
 
-[![Down to Lochan nan Cat](https://live.staticflickr.com/5215/5506472099_f1f00e9cd2_b.jpg "Down to Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5506472099/)
+[![Down to Lochan nan Cat](https://live.staticflickr.com/5215/5506472099_f1f00e9cd2_b.jpg "Down to Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5506472099/))
 
 
 
@@ -159,15 +159,15 @@ At the bealach I found a faint track that ran down a steep shoulder. It kept abo
 
 
 
-[![Steep, snowy descent to the lochan](https://live.staticflickr.com/5131/5507079816_c442024afa_b.jpg "Steep, snowy descent to the lochan")](https://www.flickr.com/photos/black_friction/5507079816/)
+[![Steep, snowy descent to the lochan](https://live.staticflickr.com/5131/5507079816_c442024afa_b.jpg "Steep, snowy descent to the lochan")](https://www.flickr.com/photos/black_friction/5507079816/))
 
 
 
-[![Last of the snow above Lochan nan Cat](https://live.staticflickr.com/5060/5507083060_cc96616dd7_b.jpg "Last of the snow above Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5507083060/)
+[![Last of the snow above Lochan nan Cat](https://live.staticflickr.com/5060/5507083060_cc96616dd7_b.jpg "Last of the snow above Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5507083060/))
 
 
 
-[![Towards Creag an Fhithich](https://live.staticflickr.com/5213/5506494145_74cf9b5e74_b.jpg "Towards Creag an Fhithich")](https://www.flickr.com/photos/black_friction/5506494145/)
+[![Towards Creag an Fhithich](https://live.staticflickr.com/5213/5506494145_74cf9b5e74_b.jpg "Towards Creag an Fhithich")](https://www.flickr.com/photos/black_friction/5506494145/))
 
 
 
@@ -175,23 +175,23 @@ The area around the loch was boggy but there were patches of firm ground here an
 
 
 
-[![Lochan nan Cat](https://live.staticflickr.com/5218/5507096204_6c81f659aa_b.jpg "Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5507096204/)
+[![Lochan nan Cat](https://live.staticflickr.com/5218/5507096204_6c81f659aa_b.jpg "Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5507096204/))
 
 
 
-[![Lochan nan Cat](https://live.staticflickr.com/5171/5507110090_91548170c2_b.jpg "Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5507110090/)
+[![Lochan nan Cat](https://live.staticflickr.com/5171/5507110090_91548170c2_b.jpg "Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5507110090/))
 
 
 
-[![Lochan nan Cat](https://live.staticflickr.com/5214/5507122766_69f786a2eb_b.jpg "Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5507122766/)
+[![Lochan nan Cat](https://live.staticflickr.com/5214/5507122766_69f786a2eb_b.jpg "Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5507122766/))
 
 
 
-[![Lochan nan Cat](https://live.staticflickr.com/5214/5507129550_664abae51a_b.jpg "Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5507129550/)
+[![Lochan nan Cat](https://live.staticflickr.com/5214/5507129550_664abae51a_b.jpg "Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5507129550/))
 
 
 
-[![View across Lochan nan Cat](https://live.staticflickr.com/5012/5507146268_b852ba0d23_b.jpg "View across Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5507146268/)
+[![View across Lochan nan Cat](https://live.staticflickr.com/5012/5507146268_b852ba0d23_b.jpg "View across Lochan nan Cat")](https://www.flickr.com/photos/black_friction/5507146268/))
 
 
 
@@ -199,11 +199,11 @@ Past the smaller southern section of the loch I continued to follow the track wh
 
 
 
-[![Snowbanks on the Lawers Burn](https://live.staticflickr.com/5213/5507149930_1bc7cd75ef_b.jpg "Snowbanks on the Lawers Burn")](https://www.flickr.com/photos/black_friction/5507149930/)
+[![Snowbanks on the Lawers Burn](https://live.staticflickr.com/5213/5507149930_1bc7cd75ef_b.jpg "Snowbanks on the Lawers Burn")](https://www.flickr.com/photos/black_friction/5507149930/))
 
 
 
-[![Lawers Burn](https://live.staticflickr.com/5058/5506561749_705a029e95_b.jpg "Lawers Burn")](https://www.flickr.com/photos/black_friction/5506561749/)
+[![Lawers Burn](https://live.staticflickr.com/5058/5506561749_705a029e95_b.jpg "Lawers Burn")](https://www.flickr.com/photos/black_friction/5506561749/))
 
 
 
@@ -211,11 +211,11 @@ This is a delightful track on good springy turf that keeps you high above the im
 
 
 
-[![Bridge in the Lawers Ravine](https://live.staticflickr.com/5216/5507168462_18c5a515a7_b.jpg "Bridge in the Lawers Ravine")](https://www.flickr.com/photos/black_friction/5507168462/)
+[![Bridge in the Lawers Ravine](https://live.staticflickr.com/5216/5507168462_18c5a515a7_b.jpg "Bridge in the Lawers Ravine")](https://www.flickr.com/photos/black_friction/5507168462/))
 
 
 
-[![Bridge over the Lawers Burn](https://live.staticflickr.com/5259/5506576391_7709d65530_b.jpg "Bridge over the Lawers Burn")](https://www.flickr.com/photos/black_friction/5506576391/)
+[![Bridge over the Lawers Burn](https://live.staticflickr.com/5259/5506576391_7709d65530_b.jpg "Bridge over the Lawers Burn")](https://www.flickr.com/photos/black_friction/5506576391/))
 
 
 
@@ -223,11 +223,11 @@ Once across I was soon reunited with my outward track which gave an easy route b
 
 
 
-[![Returning to Loch Tay](https://live.staticflickr.com/5295/5506598877_135ebf6254_b.jpg "Returning to Loch Tay")](https://www.flickr.com/photos/black_friction/5506598877/)
+[![Returning to Loch Tay](https://live.staticflickr.com/5295/5506598877_135ebf6254_b.jpg "Returning to Loch Tay")](https://www.flickr.com/photos/black_friction/5506598877/))
 
 
 
-[![Loch Tay and distant Meall Greigh](https://live.staticflickr.com/5171/5507199662_4ee6774623_b.jpg "Loch Tay and distant Meall Greigh")](https://www.flickr.com/photos/black_friction/5507199662/)
+[![Loch Tay and distant Meall Greigh](https://live.staticflickr.com/5171/5507199662_4ee6774623_b.jpg "Loch Tay and distant Meall Greigh")](https://www.flickr.com/photos/black_friction/5507199662/))
 
 
 

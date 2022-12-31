@@ -19,7 +19,7 @@ Before the sun had risen I was driving down the South Deeside Road under less th
 
 <!--more-->
 
-[![Boardwalk near the Linn of Dee](https://live.staticflickr.com/5291/5401590728_ee2eec54b9_b.jpg "Boardwalk near the Linn of Dee")](https://www.flickr.com/photos/black_friction/5401590728/)
+[![Boardwalk near the Linn of Dee](https://live.staticflickr.com/5291/5401590728_ee2eec54b9_b.jpg "Boardwalk near the Linn of Dee")](https://www.flickr.com/photos/black_friction/5401590728/))
 
 
 
@@ -27,7 +27,7 @@ The car park at the Linn of Dee was eerily quiet. There were only a few cars hud
 
 
 
-[![The Lui Water](https://live.staticflickr.com/5017/5400992467_4df3c47e1f_b.jpg "The Lui Water")](https://www.flickr.com/photos/black_friction/5400992467/)
+[![The Lui Water](https://live.staticflickr.com/5017/5400992467_4df3c47e1f_b.jpg "The Lui Water")](https://www.flickr.com/photos/black_friction/5400992467/))
 
 
 
@@ -35,11 +35,11 @@ The world was cold and grey, colour sapped out of the ground and the sky by a lo
 
 
 
-[![Besides the Derry Road](https://live.staticflickr.com/5097/5400996889_47707b8173_b.jpg "Besides the Derry Road")](https://www.flickr.com/photos/black_friction/5400996889/)
+[![Besides the Derry Road](https://live.staticflickr.com/5097/5400996889_47707b8173_b.jpg "Besides the Derry Road")](https://www.flickr.com/photos/black_friction/5400996889/))
 
 
 
-[![The Lui Water](https://live.staticflickr.com/5020/5401594656_9b30fbe877_b.jpg "The Lui Water")](https://www.flickr.com/photos/black_friction/5401594656/)
+[![The Lui Water](https://live.staticflickr.com/5020/5401594656_9b30fbe877_b.jpg "The Lui Water")](https://www.flickr.com/photos/black_friction/5401594656/))
 
 
 
@@ -47,11 +47,11 @@ The Derry Road is familiar ground, having walked it on four previous occasions. 
 
 
 
-[![Derry Lodge](https://live.staticflickr.com/5179/5404087316_ffc0b6acbb_b.jpg "Derry Lodge")](https://www.flickr.com/photos/black_friction/5404087316/)
+[![Derry Lodge](https://live.staticflickr.com/5179/5404087316_ffc0b6acbb_b.jpg "Derry Lodge")](https://www.flickr.com/photos/black_friction/5404087316/))
 
 
 
-[![Carn a' Mhaim from Derry Lodge](https://live.staticflickr.com/5094/5404089532_36319c7154_b.jpg "Carn a' Mhaim from Derry Lodge")](https://www.flickr.com/photos/black_friction/5404089532/)
+[![Carn a' Mhaim from Derry Lodge](https://live.staticflickr.com/5094/5404089532_36319c7154_b.jpg "Carn a' Mhaim from Derry Lodge")](https://www.flickr.com/photos/black_friction/5404089532/))
 
 
 
@@ -59,7 +59,7 @@ After a few minutes of wending through the woods, the track came back to the wat
 
 
 
-[![The Derry Burn](https://live.staticflickr.com/5251/5403491209_1bf9fed1d0_b.jpg "The Derry Burn")](https://www.flickr.com/photos/black_friction/5403491209/)
+[![The Derry Burn](https://live.staticflickr.com/5251/5403491209_1bf9fed1d0_b.jpg "The Derry Burn")](https://www.flickr.com/photos/black_friction/5403491209/))
 
 
 
@@ -67,11 +67,11 @@ After this pleasant break I pushed on, following the track as it slowly climbed 
 
 
 
-[![Icy](https://live.staticflickr.com/5294/5403489477_96d81e0e8b_b.jpg "Icy")](https://www.flickr.com/photos/black_friction/5403489477/)
+[![Icy](https://live.staticflickr.com/5294/5403489477_96d81e0e8b_b.jpg "Icy")](https://www.flickr.com/photos/black_friction/5403489477/))
 
 
 
-[![Bridge over the Derry](https://live.staticflickr.com/5140/5404094340_a883a788c8_b.jpg "Bridge over the Derry")](https://www.flickr.com/photos/black_friction/5404094340/)
+[![Bridge over the Derry](https://live.staticflickr.com/5140/5404094340_a883a788c8_b.jpg "Bridge over the Derry")](https://www.flickr.com/photos/black_friction/5404094340/))
 
 
 
@@ -79,15 +79,15 @@ Eventually I reached the Glas Allt Mor, tumbling down from the col below Beinn a
 
 
 
-[![Beinn Mheadhoin in cloud](https://live.staticflickr.com/5098/5404096212_214f4f6d13_b.jpg "Beinn Mheadhoin in cloud")](https://www.flickr.com/photos/black_friction/5404096212/)
+[![Beinn Mheadhoin in cloud](https://live.staticflickr.com/5098/5404096212_214f4f6d13_b.jpg "Beinn Mheadhoin in cloud")](https://www.flickr.com/photos/black_friction/5404096212/))
 
 
 
-[![The Glas Allt Mor](https://live.staticflickr.com/5300/5400697439_16f0427b08_b.jpg "The Glas Allt Mor")](https://www.flickr.com/photos/black_friction/5400697439/)
+[![The Glas Allt Mor](https://live.staticflickr.com/5300/5400697439_16f0427b08_b.jpg "The Glas Allt Mor")](https://www.flickr.com/photos/black_friction/5400697439/))
 
 
 
-[![Snow storm](https://live.staticflickr.com/5255/5400772336_3ffb115733_b.jpg "Snow storm")](https://www.flickr.com/photos/black_friction/5400772336/)
+[![Snow storm](https://live.staticflickr.com/5255/5400772336_3ffb115733_b.jpg "Snow storm")](https://www.flickr.com/photos/black_friction/5400772336/))
 
 
 
@@ -99,7 +99,7 @@ I avoided the craggy edge above the Lairig and so traversed a slight depression 
 
 
 
-[![Summit of Beinn a' Chaorainn](https://live.staticflickr.com/5018/5404098606_5cf6535268_b.jpg "Summit of Beinn a' Chaorainn")](https://www.flickr.com/photos/black_friction/5404098606/)
+[![Summit of Beinn a' Chaorainn](https://live.staticflickr.com/5018/5404098606_5cf6535268_b.jpg "Summit of Beinn a' Chaorainn")](https://www.flickr.com/photos/black_friction/5404098606/))
 
 
 
@@ -107,7 +107,7 @@ After a quick check to confirm there wasnâ€™t a view in any direction I sat
 
 
 
-[![Snow blasted summit](https://live.staticflickr.com/5095/5400227245_688617203e_b.jpg "Snow blasted summit")](https://www.flickr.com/photos/black_friction/5400227245/)
+[![Snow blasted summit](https://live.staticflickr.com/5095/5400227245_688617203e_b.jpg "Snow blasted summit")](https://www.flickr.com/photos/black_friction/5400227245/))
 
 
 
@@ -115,7 +115,7 @@ As I sat there conditions improved slightly, the sun peering warily through the 
 
 
 
-[![Sun dog over Glen Derry](https://live.staticflickr.com/5256/5400547253_00394a2fc8_b.jpg "Sun dog over Glen Derry")](https://www.flickr.com/photos/black_friction/5400547253/)
+[![Sun dog over Glen Derry](https://live.staticflickr.com/5256/5400547253_00394a2fc8_b.jpg "Sun dog over Glen Derry")](https://www.flickr.com/photos/black_friction/5400547253/))
 
 
 
@@ -123,15 +123,15 @@ After removing my crampons I made excellent progress along what must surely be o
 
 
 
-[![The Moine Bhealaidh](https://live.staticflickr.com/5096/5400496317_915f145c54_b.jpg "The Moine Bhealaidh")](https://www.flickr.com/photos/black_friction/5400496317/)
+[![The Moine Bhealaidh](https://live.staticflickr.com/5096/5400496317_915f145c54_b.jpg "The Moine Bhealaidh")](https://www.flickr.com/photos/black_friction/5400496317/))
 
 
 
-[![A solitary wanderer](https://live.staticflickr.com/5134/5403499143_64c2e2526d_b.jpg "A solitary wanderer")](https://www.flickr.com/photos/black_friction/5403499143/)
+[![A solitary wanderer](https://live.staticflickr.com/5134/5403499143_64c2e2526d_b.jpg "A solitary wanderer")](https://www.flickr.com/photos/black_friction/5403499143/))
 
 
 
-[![Feeble sun](https://live.staticflickr.com/5294/5403499701_488f618423_b.jpg "Feeble sun")](https://www.flickr.com/photos/black_friction/5403499701/)
+[![Feeble sun](https://live.staticflickr.com/5294/5403499701_488f618423_b.jpg "Feeble sun")](https://www.flickr.com/photos/black_friction/5403499701/))
 
 
 
@@ -139,15 +139,15 @@ Eventually, as the clouds thickened and steady, powdery snow began to fall, the 
 
 
 
-[![The summit plateau of Beinn Bhreac](https://live.staticflickr.com/5172/5404103492_ea36677973_b.jpg "The summit plateau of Beinn Bhreac")](https://www.flickr.com/photos/black_friction/5404103492/)
+[![The summit plateau of Beinn Bhreac](https://live.staticflickr.com/5172/5404103492_ea36677973_b.jpg "The summit plateau of Beinn Bhreac")](https://www.flickr.com/photos/black_friction/5404103492/))
 
 
 
-[![Above Glen Derry](https://live.staticflickr.com/5177/5403501625_882cb48bf9_b.jpg "Above Glen Derry")](https://www.flickr.com/photos/black_friction/5403501625/)
+[![Above Glen Derry](https://live.staticflickr.com/5177/5403501625_882cb48bf9_b.jpg "Above Glen Derry")](https://www.flickr.com/photos/black_friction/5403501625/))
 
 
 
-[![Summit of Beinn Bhreac](https://live.staticflickr.com/5216/5406011814_8fe791397e_b.jpg "Summit of Beinn Bhreac")](https://www.flickr.com/photos/black_friction/5406011814/)
+[![Summit of Beinn Bhreac](https://live.staticflickr.com/5216/5406011814_8fe791397e_b.jpg "Summit of Beinn Bhreac")](https://www.flickr.com/photos/black_friction/5406011814/))
 
 
 
@@ -155,7 +155,7 @@ Luckily though, as the day drew towards its close, the views were improving. As 
 
 
 
-[![Looking over Glen Lui](https://live.staticflickr.com/5295/5403503855_e8e472cb2f_b.jpg "Looking over Glen Lui")](https://www.flickr.com/photos/black_friction/5403503855/)
+[![Looking over Glen Lui](https://live.staticflickr.com/5295/5403503855_e8e472cb2f_b.jpg "Looking over Glen Lui")](https://www.flickr.com/photos/black_friction/5403503855/))
 
 
 
@@ -163,15 +163,15 @@ The slopes here are fairly gentle so I made good progress, glissading down a cou
 
 
 
-[![Mountains in the gloaming](https://live.staticflickr.com/5095/5403504687_3b3c385311_b.jpg "Mountains in the gloaming")](https://www.flickr.com/photos/black_friction/5403504687/)
+[![Mountains in the gloaming](https://live.staticflickr.com/5095/5403504687_3b3c385311_b.jpg "Mountains in the gloaming")](https://www.flickr.com/photos/black_friction/5403504687/))
 
 
 
-[![Beyond the mountains there is light](https://live.staticflickr.com/5100/5401222070_66dbe14f14_b.jpg "Beyond the mountains there is light")](https://www.flickr.com/photos/black_friction/5401222070/)
+[![Beyond the mountains there is light](https://live.staticflickr.com/5100/5401222070_66dbe14f14_b.jpg "Beyond the mountains there is light")](https://www.flickr.com/photos/black_friction/5401222070/))
 
 
 
-[![Glen Derry](https://live.staticflickr.com/5255/5399070335_03939f203b_b.jpg "Glen Derry")](https://www.flickr.com/photos/black_friction/5399070335/)
+[![Glen Derry](https://live.staticflickr.com/5255/5399070335_03939f203b_b.jpg "Glen Derry")](https://www.flickr.com/photos/black_friction/5399070335/))
 
 
 
@@ -179,11 +179,11 @@ I was soon amongst the trees and then scrambling along a boggy track to emerge o
 
 
 
-[![Evening in Glen Derry](https://live.staticflickr.com/5057/5404105874_ccbb77612b_b.jpg "Evening in Glen Derry")](https://www.flickr.com/photos/black_friction/5404105874/)
+[![Evening in Glen Derry](https://live.staticflickr.com/5057/5404105874_ccbb77612b_b.jpg "Evening in Glen Derry")](https://www.flickr.com/photos/black_friction/5404105874/))
 
 
 
-[![Last light on Beinn Mheadhoin](https://live.staticflickr.com/5016/5398976473_7f0896a15e_b.jpg "Last light on Beinn Mheadhoin")](https://www.flickr.com/photos/black_friction/5398976473/)
+[![Last light on Beinn Mheadhoin](https://live.staticflickr.com/5016/5398976473_7f0896a15e_b.jpg "Last light on Beinn Mheadhoin")](https://www.flickr.com/photos/black_friction/5398976473/))
 
 
 
@@ -195,4 +195,4 @@ Orion kept me company on the long journey back to Aberdeen.
 
 
 
-[![Tree at dusk](https://live.staticflickr.com/5176/5406013190_ee0b5cf6be_b.jpg "Tree at dusk")](https://www.flickr.com/photos/black_friction/5406013190/)
+[![Tree at dusk](https://live.staticflickr.com/5176/5406013190_ee0b5cf6be_b.jpg "Tree at dusk")](https://www.flickr.com/photos/black_friction/5406013190/))

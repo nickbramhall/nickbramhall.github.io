@@ -27,7 +27,7 @@ It was a relief to reach the shelter of the buildings which cluster around the s
 
 
 
-[![IMG_20110220_115524](https://live.staticflickr.com/5220/5464509212_1efb5c3cda_b.jpg "IMG_20110220_115524")](https://www.flickr.com/photos/black_friction/5464509212/)
+[![IMG_20110220_115524](https://live.staticflickr.com/5220/5464509212_1efb5c3cda_b.jpg "IMG_20110220_115524")](https://www.flickr.com/photos/black_friction/5464509212/))
 
 
 
@@ -43,7 +43,7 @@ Here we had a bite of lunch (a late start from Aberdeen and a long drive across 
 
 
 
-[![IMG_20110220_115515](https://live.staticflickr.com/5173/5463908731_04b69c6e27_b.jpg "IMG_20110220_115515")](https://www.flickr.com/photos/black_friction/5463908731/)
+[![IMG_20110220_115515](https://live.staticflickr.com/5173/5463908731_04b69c6e27_b.jpg "IMG_20110220_115515")](https://www.flickr.com/photos/black_friction/5463908731/))
 
 
 
@@ -51,7 +51,7 @@ Once again we ascended to the ridge-line and continued south-west, following a s
 
 
 
-[![IMG_20110220_115530](https://live.staticflickr.com/5259/5463910845_d9e2d12db6_b.jpg "IMG_20110220_115530")](https://www.flickr.com/photos/black_friction/5463910845/)
+[![IMG_20110220_115530](https://live.staticflickr.com/5259/5463910845_d9e2d12db6_b.jpg "IMG_20110220_115530")](https://www.flickr.com/photos/black_friction/5463910845/))
 
 
 
@@ -59,11 +59,11 @@ Views were non-existent sadly so after a very brief stop we continued on our way
 
 
 
-[![IMG_20110220_140616](https://live.staticflickr.com/5178/5464512936_c3ea17a03c_b.jpg "IMG_20110220_140616")](https://www.flickr.com/photos/black_friction/5464512936/)
+[![IMG_20110220_140616](https://live.staticflickr.com/5178/5464512936_c3ea17a03c_b.jpg "IMG_20110220_140616")](https://www.flickr.com/photos/black_friction/5464512936/))
 
 
 
-[![IMG_20110220_140633](https://live.staticflickr.com/5137/5463914483_096e8ca79c_b.jpg "IMG_20110220_140633")](https://www.flickr.com/photos/black_friction/5463914483/)
+[![IMG_20110220_140633](https://live.staticflickr.com/5137/5463914483_096e8ca79c_b.jpg "IMG_20110220_140633")](https://www.flickr.com/photos/black_friction/5463914483/))
 
 
 
@@ -71,11 +71,11 @@ However, it was declared hightime for another break and as we got lower down the
 
 
 
-[![IMG_20110220_143309](https://live.staticflickr.com/5293/5465678941_d9d27dd4f8_b.jpg "IMG_20110220_143309")](https://www.flickr.com/photos/black_friction/5465678941/)
+[![IMG_20110220_143309](https://live.staticflickr.com/5293/5465678941_d9d27dd4f8_b.jpg "IMG_20110220_143309")](https://www.flickr.com/photos/black_friction/5465678941/))
 
 
 
-[![IMG_20110220_143305](https://live.staticflickr.com/5058/5466275302_ffb43b67dd_b.jpg "IMG_20110220_143305")](https://www.flickr.com/photos/black_friction/5466275302/)
+[![IMG_20110220_143305](https://live.staticflickr.com/5058/5466275302_ffb43b67dd_b.jpg "IMG_20110220_143305")](https://www.flickr.com/photos/black_friction/5466275302/))
 
 
 
@@ -87,11 +87,11 @@ From it, a more distinct path was picked up which led us on to the north shoulde
 
 
 
-[![On the Cromdale Ridge](https://live.staticflickr.com/5059/5462945414_4ebcfb7f84_b.jpg "On the Cromdale Ridge")](https://www.flickr.com/photos/black_friction/5462945414/)
+[![On the Cromdale Ridge](https://live.staticflickr.com/5059/5462945414_4ebcfb7f84_b.jpg "On the Cromdale Ridge")](https://www.flickr.com/photos/black_friction/5462945414/))
 
 
 
-[![IMG_20110220_145610](https://live.staticflickr.com/5016/5465683883_257c00f9f3_b.jpg "IMG_20110220_145610")](https://www.flickr.com/photos/black_friction/5465683883/)
+[![IMG_20110220_145610](https://live.staticflickr.com/5016/5465683883_257c00f9f3_b.jpg "IMG_20110220_145610")](https://www.flickr.com/photos/black_friction/5465683883/))
 
 
 
@@ -99,11 +99,11 @@ Eventually we reached the final steep slope up to the trig point and cairn which
 
 
 
-[![IMG_20110220_150802](https://live.staticflickr.com/5133/5466294244_44246e251e_b.jpg "IMG_20110220_150802")](https://www.flickr.com/photos/black_friction/5466294244/)
+[![IMG_20110220_150802](https://live.staticflickr.com/5133/5466294244_44246e251e_b.jpg "IMG_20110220_150802")](https://www.flickr.com/photos/black_friction/5466294244/))
 
 
 
-[![IMG_20110220_150756](https://live.staticflickr.com/5173/5466291556_496b166639_b.jpg "IMG_20110220_150756")](https://www.flickr.com/photos/black_friction/5466291556/)
+[![IMG_20110220_150756](https://live.staticflickr.com/5173/5466291556_496b166639_b.jpg "IMG_20110220_150756")](https://www.flickr.com/photos/black_friction/5466291556/))
 
 
 
@@ -111,15 +111,15 @@ We spent a few minutes enjoying the fine views and then, conscious of the time, 
 
 
 
-[![IMG_20110220_150726](https://live.staticflickr.com/5293/5465688831_c5ce33f1f8_b.jpg "IMG_20110220_150726")](https://www.flickr.com/photos/black_friction/5465688831/)
+[![IMG_20110220_150726](https://live.staticflickr.com/5293/5465688831_c5ce33f1f8_b.jpg "IMG_20110220_150726")](https://www.flickr.com/photos/black_friction/5465688831/))
 
 
 
-[![IMG_20110220_150733](https://live.staticflickr.com/5018/5466289048_400c9fc447_b.jpg "IMG_20110220_150733")](https://www.flickr.com/photos/black_friction/5466289048/)
+[![IMG_20110220_150733](https://live.staticflickr.com/5018/5466289048_400c9fc447_b.jpg "IMG_20110220_150733")](https://www.flickr.com/photos/black_friction/5466289048/))
 
 
 
-[![IMG_20110220_153351](https://live.staticflickr.com/5138/5466295976_795e723417_b.jpg "IMG_20110220_153351")](https://www.flickr.com/photos/black_friction/5466295976/)
+[![IMG_20110220_153351](https://live.staticflickr.com/5138/5466295976_795e723417_b.jpg "IMG_20110220_153351")](https://www.flickr.com/photos/black_friction/5466295976/))
 
 
 
@@ -127,4 +127,4 @@ After this and another short break in the sheltered gulley, we continued the des
 
  
 
-[![Sunset from the Bridge of Brown](https://live.staticflickr.com/5214/5466297590_c419b82b16_b.jpg "Sunset from the Bridge of Brown")](https://www.flickr.com/photos/black_friction/5466297590/)
+[![Sunset from the Bridge of Brown](https://live.staticflickr.com/5214/5466297590_c419b82b16_b.jpg "Sunset from the Bridge of Brown")](https://www.flickr.com/photos/black_friction/5466297590/))

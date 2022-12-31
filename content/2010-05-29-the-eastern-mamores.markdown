@@ -23,7 +23,7 @@ From the lodge a landrover track leads eastwards towards the hills. At the cotta
 
 
 
-[![Looking down Loch Leven](https://live.staticflickr.com/4031/4660713989_c94d8a6264_b.jpg "Looking down Loch Leven")](https://www.flickr.com/photos/black_friction/4660713989/)
+[![Looking down Loch Leven](https://live.staticflickr.com/4031/4660713989_c94d8a6264_b.jpg "Looking down Loch Leven")](https://www.flickr.com/photos/black_friction/4660713989/))
 
 
 
@@ -31,11 +31,11 @@ As I followed the track which skirts south of the lower slopes of Na Gruagaichea
 
 
 
-[![The stalkers path](https://live.staticflickr.com/4021/4661354218_b785cbd1ca_b.jpg "The stalkers path")](https://www.flickr.com/photos/black_friction/4661354218/)
+[![The stalkers path](https://live.staticflickr.com/4021/4661354218_b785cbd1ca_b.jpg "The stalkers path")](https://www.flickr.com/photos/black_friction/4661354218/))
 
 
 
-[![Loch Eilde Mor](https://live.staticflickr.com/4039/4661363272_d01ac01dba_b.jpg "Loch Eilde Mor")](https://www.flickr.com/photos/black_friction/4661363272/)
+[![Loch Eilde Mor](https://live.staticflickr.com/4039/4661363272_d01ac01dba_b.jpg "Loch Eilde Mor")](https://www.flickr.com/photos/black_friction/4661363272/))
 
 
 
@@ -43,11 +43,11 @@ As I crested the wide coire I could see that my first target of the day, Sgurr E
 
 
 
-[![Sgurr Eilde Mor in cloud](https://live.staticflickr.com/1283/4661388086_59841d2a3e_b.jpg "Sgurr Eilde Mor in cloud")](https://www.flickr.com/photos/black_friction/4661388086/)
+[![Sgurr Eilde Mor in cloud](https://live.staticflickr.com/1283/4661388086_59841d2a3e_b.jpg "Sgurr Eilde Mor in cloud")](https://www.flickr.com/photos/black_friction/4661388086/))
 
 
 
-[![](http://farm5.static.flickr.com/4019/4660793067_3a95a6555a_b.jpg)](http://www.flickr.com/photos/53725815@N00/4660793067)
+[![Lower shoulder of Sgurr Eilde Mor](https://live.staticflickr.com/4019/4660793067_3a95a6555a_b.jpg "Lower shoulder of Sgurr Eilde Mor")](https://www.flickr.com/photos/black_friction/4660793067/))
 
 
 
@@ -59,7 +59,7 @@ I continued north on the summit for a short distance before the clouds parted to
 
 
 
-[![Binnein Beag](https://live.staticflickr.com/1301/4661484990_d7c93a0090_b.jpg "Binnein Beag")](https://www.flickr.com/photos/black_friction/4661484990/)
+[![Binnein Beag](https://live.staticflickr.com/1301/4661484990_d7c93a0090_b.jpg "Binnein Beag")](https://www.flickr.com/photos/black_friction/4661484990/))
 
 
 
@@ -71,7 +71,7 @@ The track here is excellent and got me very quickly up to the small lochan that 
 
 
 
-[![The lochan from Binnein Beag](https://live.staticflickr.com/4066/4660887611_8cd61ddfff_b.jpg "The lochan from Binnein Beag")](https://www.flickr.com/photos/black_friction/4660887611/)
+[![The lochan from Binnein Beag](https://live.staticflickr.com/4066/4660887611_8cd61ddfff_b.jpg "The lochan from Binnein Beag")](https://www.flickr.com/photos/black_friction/4660887611/))
 
 
 
@@ -79,7 +79,7 @@ After ten or so minutes I headed back down to the lochan. Of course the mist slo
 
 
 
-[![Binnein Beag](https://live.staticflickr.com/4048/4660897027_8f4ac71b75_b.jpg "Binnein Beag")](https://www.flickr.com/photos/black_friction/4660897027/)
+[![Binnein Beag](https://live.staticflickr.com/4048/4660897027_8f4ac71b75_b.jpg "Binnein Beag")](https://www.flickr.com/photos/black_friction/4660897027/))
 
 
 
@@ -87,15 +87,15 @@ This corresponded with a general brightening all around and though I initially t
 
 
 
-[![Binnein Beag](https://live.staticflickr.com/4030/4660914675_e8e89e87c7_b.jpg "Binnein Beag")](https://www.flickr.com/photos/black_friction/4660914675/)
+[![](http://farm5.static.flickr.com/4030/4660914675_e8e89e87c7_b.jpg)](http://www.flickr.com/photos/53725815@N00/4660914675)
 
 
 
-[![Ben Nevis and Carn Mor Dearg](https://live.staticflickr.com/4030/4660921925_bd1ff367e1_b.jpg "Ben Nevis and Carn Mor Dearg")](https://www.flickr.com/photos/black_friction/4660921925/)
+[![](http://farm5.static.flickr.com/4030/4660921925_bd1ff367e1_b.jpg)](http://www.flickr.com/photos/53725815@N00/4660921925)
 
 
 
-[![Approaching Binnein Mor](https://live.staticflickr.com/4052/4661568250_8f6ba4b1c6_b.jpg "Approaching Binnein Mor")](https://www.flickr.com/photos/black_friction/4661568250/)
+[![Approaching Binnein Mor](https://live.staticflickr.com/4052/4661568250_8f6ba4b1c6_b.jpg "Approaching Binnein Mor")](https://www.flickr.com/photos/black_friction/4661568250/))
 
 
 
@@ -103,7 +103,7 @@ This was a very intimidating feature with layers of rock folded and contorted in
 
 
 
-[![North face of Binnein Mor](https://live.staticflickr.com/4039/4661576834_a285f6b657_b.jpg "North face of Binnein Mor")](https://www.flickr.com/photos/black_friction/4661576834/)
+[![North face of Binnein Mor](https://live.staticflickr.com/4039/4661576834_a285f6b657_b.jpg "North face of Binnein Mor")](https://www.flickr.com/photos/black_friction/4661576834/))
 
 
 
@@ -111,11 +111,11 @@ This was up a very steep and damp gully that had occasional traces of a path. I 
 
 
 
-[![The Mamores Ridge](https://live.staticflickr.com/4068/4660964283_4f81208ca9_b.jpg "The Mamores Ridge")](https://www.flickr.com/photos/black_friction/4660964283/)
+[![The Mamores Ridge](https://live.staticflickr.com/4068/4660964283_4f81208ca9_b.jpg "The Mamores Ridge")](https://www.flickr.com/photos/black_friction/4660964283/))
 
 
 
-[![Ben Nevis](https://live.staticflickr.com/4064/4661558642_a9ffc251ec_b.jpg "Ben Nevis")](https://www.flickr.com/photos/black_friction/4661558642/)
+[![Ben Nevis](https://live.staticflickr.com/4064/4661558642_a9ffc251ec_b.jpg "Ben Nevis")](https://www.flickr.com/photos/black_friction/4661558642/))
 
 
 
@@ -123,7 +123,7 @@ From here my plan was now to follow the ridge as long as my deadline for a dinne
 
 
 
-[![IMG_7965.CR2](https://live.staticflickr.com/1298/4667203048_7468319b94_b.jpg "IMG_7965.CR2")](https://www.flickr.com/photos/black_friction/4667203048/)
+[![IMG_7965.CR2](https://live.staticflickr.com/1298/4667203048_7468319b94_b.jpg "IMG_7965.CR2")](https://www.flickr.com/photos/black_friction/4667203048/))
 
 
 
@@ -131,15 +131,15 @@ I climbed up Na Gruagaichean in a cloud but only seconds after reaching the summ
 
 
 
-[![The ridge from Binnein Mor](https://live.staticflickr.com/1269/4667210876_e38df6760b_b.jpg "The ridge from Binnein Mor")](https://www.flickr.com/photos/black_friction/4667210876/)
+[![The ridge from Binnein Mor](https://live.staticflickr.com/1269/4667210876_e38df6760b_b.jpg "The ridge from Binnein Mor")](https://www.flickr.com/photos/black_friction/4667210876/))
 
 
 
-[![Looking over Loch Leven](https://live.staticflickr.com/4071/4666607987_4ef937c19d_b.jpg "Looking over Loch Leven")](https://www.flickr.com/photos/black_friction/4666607987/)
+[![Looking over Loch Leven](https://live.staticflickr.com/4071/4666607987_4ef937c19d_b.jpg "Looking over Loch Leven")](https://www.flickr.com/photos/black_friction/4666607987/))
 
 
 
-[![Binnein Mor](https://live.staticflickr.com/4025/4667237070_858f8653dc_b.jpg "Binnein Mor")](https://www.flickr.com/photos/black_friction/4667237070/)
+[![Binnein Mor](https://live.staticflickr.com/4025/4667237070_858f8653dc_b.jpg "Binnein Mor")](https://www.flickr.com/photos/black_friction/4667237070/))
 
 
 
@@ -147,7 +147,7 @@ There is a very steep and notched gap between Na Gruagaichean and its north-west
 
 
 
-[![Na Gruagaichean](https://live.staticflickr.com/4041/4667245638_9fa924dd27_b.jpg "Na Gruagaichean")](https://www.flickr.com/photos/black_friction/4667245638/)
+[![Na Gruagaichean](https://live.staticflickr.com/4041/4667245638_9fa924dd27_b.jpg "Na Gruagaichean")](https://www.flickr.com/photos/black_friction/4667245638/))
 
 
 
@@ -155,15 +155,15 @@ I enjoyed the final walk along the grassy ridge with the central Mamores stretch
 
 
 
-[![Bidean Nan Bian](https://live.staticflickr.com/4013/4667251998_60ffdb371d_b.jpg "Bidean Nan Bian")](https://www.flickr.com/photos/black_friction/4667251998/)
+[![Bidean Nan Bian](https://live.staticflickr.com/4013/4667251998_60ffdb371d_b.jpg "Bidean Nan Bian")](https://www.flickr.com/photos/black_friction/4667251998/))
 
 
 
-[![Ben Nevis](https://live.staticflickr.com/4039/4666647207_d08bf0b130_b.jpg "Ben Nevis")](https://www.flickr.com/photos/black_friction/4666647207/)
+[![Ben Nevis](https://live.staticflickr.com/4039/4666647207_d08bf0b130_b.jpg "Ben Nevis")](https://www.flickr.com/photos/black_friction/4666647207/))
 
 
 
-[![The ridge to Am Bodach](https://live.staticflickr.com/4027/4666660975_fdeb05002d_b.jpg "The ridge to Am Bodach")](https://www.flickr.com/photos/black_friction/4666660975/)
+[![The ridge to Am Bodach](https://live.staticflickr.com/4027/4666660975_fdeb05002d_b.jpg "The ridge to Am Bodach")](https://www.flickr.com/photos/black_friction/4666660975/))
 
 
 
@@ -171,7 +171,7 @@ As I descended off the ridge I had good views down towards Kinlochleven.
 
 
 
-[![Kinlochleven](https://live.staticflickr.com/1270/4667274668_44a0ffc535_b.jpg "Kinlochleven")](https://www.flickr.com/photos/black_friction/4667274668/)
+[![Kinlochleven](https://live.staticflickr.com/1270/4667274668_44a0ffc535_b.jpg "Kinlochleven")](https://www.flickr.com/photos/black_friction/4667274668/))
 
 
 
@@ -179,15 +179,15 @@ The track itself is excellent, cutting across the steep slopes in a long, steadi
 
 
 
-[![The Mamores](https://live.staticflickr.com/1278/4666676063_bd54c23d76_b.jpg "The Mamores")](https://www.flickr.com/photos/black_friction/4666676063/)
+[![The Mamores](https://live.staticflickr.com/1278/4666676063_bd54c23d76_b.jpg "The Mamores")](https://www.flickr.com/photos/black_friction/4666676063/))
 
 
 
-[![Cloud above Kinlochleven](https://live.staticflickr.com/4032/4666690187_80786a5a1e_b.jpg "Cloud above Kinlochleven")](https://www.flickr.com/photos/black_friction/4666690187/)
+[![Cloud above Kinlochleven](https://live.staticflickr.com/4032/4666690187_80786a5a1e_b.jpg "Cloud above Kinlochleven")](https://www.flickr.com/photos/black_friction/4666690187/))
 
 
 
-[![Wreathed in Cloud](https://live.staticflickr.com/1306/4666708187_461d8181bf_b.jpg "Wreathed in Cloud")](https://www.flickr.com/photos/black_friction/4666708187/)
+[![Wreathed in Cloud](https://live.staticflickr.com/1306/4666708187_461d8181bf_b.jpg "Wreathed in Cloud")](https://www.flickr.com/photos/black_friction/4666708187/))
 
 
 

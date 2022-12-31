@@ -24,11 +24,11 @@ At just on 8:15pm I was booted up and heading into the woods away from the car p
 
 
 
-[![A still evening in Glen Lui](https://live.staticflickr.com/4093/4737867119_f3bf0b00cf_b.jpg "A still evening in Glen Lui")](https://www.flickr.com/photos/black_friction/4737867119/)
+[![A still evening in Glen Lui](https://live.staticflickr.com/4093/4737867119_f3bf0b00cf_b.jpg "A still evening in Glen Lui")](https://www.flickr.com/photos/black_friction/4737867119/))
 
 
 
-[![Evening skies](https://live.staticflickr.com/4138/4738504272_59628af7b3_b.jpg "Evening skies")](https://www.flickr.com/photos/black_friction/4738504272/)
+[![Evening skies](https://live.staticflickr.com/4138/4738504272_59628af7b3_b.jpg "Evening skies")](https://www.flickr.com/photos/black_friction/4738504272/))
 
 
 
@@ -36,11 +36,11 @@ The walk along the Derry Road beside the quiet Lui Water was beautiful. The clou
 
 
 
-[![A sundog above the hills](https://live.staticflickr.com/4115/4738508056_8655ac69f0_b.jpg "A sundog above the hills")](https://www.flickr.com/photos/black_friction/4738508056/)
+[![A sundog above the hills](https://live.staticflickr.com/4115/4738508056_8655ac69f0_b.jpg "A sundog above the hills")](https://www.flickr.com/photos/black_friction/4738508056/))
 
 
 
-[![The Lui Water](https://live.staticflickr.com/4076/4737872101_82d21fbed7_b.jpg "The Lui Water")](https://www.flickr.com/photos/black_friction/4737872101/)
+[![The Lui Water](https://live.staticflickr.com/4076/4737872101_82d21fbed7_b.jpg "The Lui Water")](https://www.flickr.com/photos/black_friction/4737872101/))
 
 
 
@@ -48,11 +48,11 @@ After Derry I followed the right of way around to Luibeg where I encountered mor
 
 
 
-[![Glen Luibeg](https://live.staticflickr.com/4074/4738511100_f97c3d804f_b.jpg "Glen Luibeg")](https://www.flickr.com/photos/black_friction/4738511100/)
+[![Glen Luibeg](https://live.staticflickr.com/4074/4738511100_f97c3d804f_b.jpg "Glen Luibeg")](https://www.flickr.com/photos/black_friction/4738511100/))
 
 
 
-[![Midsummer Evening](https://live.staticflickr.com/4097/4737879035_d2e6647cc6_b.jpg "Midsummer Evening")](https://www.flickr.com/photos/black_friction/4737879035/)
+[![Midsummer Evening](https://live.staticflickr.com/4097/4737879035_d2e6647cc6_b.jpg "Midsummer Evening")](https://www.flickr.com/photos/black_friction/4737879035/))
 
 
 
@@ -60,7 +60,7 @@ As I rounded the corner the Devil's Point came into view, and then behind it the
 
 
 
-[![The Devil's Point and Cairn Toul](https://live.staticflickr.com/4116/4738519202_8377de69d1_b.jpg "The Devil's Point and Cairn Toul")](https://www.flickr.com/photos/black_friction/4738519202/)
+[![The Devil's Point and Cairn Toul](https://live.staticflickr.com/4116/4738519202_8377de69d1_b.jpg "The Devil's Point and Cairn Toul")](https://www.flickr.com/photos/black_friction/4738519202/))
 
 
 
@@ -68,7 +68,7 @@ I dropped into the Lairig Ghru and then, as the track headed towards the branch 
 
 
 
-[![Midsummer Sunset](https://live.staticflickr.com/4141/4738524240_02eae61c60_b.jpg "Midsummer Sunset")](https://www.flickr.com/photos/black_friction/4738524240/)
+[![Midsummer Sunset](https://live.staticflickr.com/4141/4738524240_02eae61c60_b.jpg "Midsummer Sunset")](https://www.flickr.com/photos/black_friction/4738524240/))
 
 
 
@@ -80,11 +80,11 @@ Whilst setting up the tent the midgies had found me but a cooling breeze got up 
 
 
 
-[![Sunset over Cairn Toul and Braeriach](https://live.staticflickr.com/4117/4736419720_75eeaf967c_b.jpg "Sunset over Cairn Toul and Braeriach")](https://www.flickr.com/photos/black_friction/4736419720/)
+[![Sunset over Cairn Toul and Braeriach](https://live.staticflickr.com/4117/4736419720_75eeaf967c_b.jpg "Sunset over Cairn Toul and Braeriach")](https://www.flickr.com/photos/black_friction/4736419720/))
 
 
 
-[![Wild Camping in Glen Dee](https://live.staticflickr.com/4143/4735241577_a11e9b325f_b.jpg "Wild Camping in Glen Dee")](https://www.flickr.com/photos/black_friction/4735241577/)
+[![Wild Camping in Glen Dee](https://live.staticflickr.com/4143/4735241577_a11e9b325f_b.jpg "Wild Camping in Glen Dee")](https://www.flickr.com/photos/black_friction/4735241577/))
 
 
 
@@ -96,11 +96,11 @@ At 4:30am I finally got up to enjoy the still dawn. The glen was in the shade wh
 
 
 
-[![Campsite under Cairn Toul](https://live.staticflickr.com/4099/4738606326_18bf72e00d_b.jpg "Campsite under Cairn Toul")](https://www.flickr.com/photos/black_friction/4738606326/)
+[![Campsite under Cairn Toul](https://live.staticflickr.com/4099/4738606326_18bf72e00d_b.jpg "Campsite under Cairn Toul")](https://www.flickr.com/photos/black_friction/4738606326/))
 
 
 
-[![Rainbow over the Devil's Point](https://live.staticflickr.com/4142/4737991007_7215aa3f68_b.jpg "Rainbow over the Devil's Point")](https://www.flickr.com/photos/black_friction/4737991007/)
+[![Rainbow over the Devil's Point](https://live.staticflickr.com/4142/4737991007_7215aa3f68_b.jpg "Rainbow over the Devil's Point")](https://www.flickr.com/photos/black_friction/4737991007/))
 
 
 
@@ -108,15 +108,15 @@ I headed towards the bothy, crossing the Dee via the metal footbridge. A single 
 
 
 
-[![Bridge over the River Dee](https://live.staticflickr.com/4080/4738638202_aee1d1ddd2_b.jpg "Bridge over the River Dee")](https://www.flickr.com/photos/black_friction/4738638202/)
+[![Bridge over the River Dee](https://live.staticflickr.com/4080/4738638202_aee1d1ddd2_b.jpg "Bridge over the River Dee")](https://www.flickr.com/photos/black_friction/4738638202/))
 
 
 
-[![Corrour Bothy](https://live.staticflickr.com/4120/4738648490_746b687e1d_b.jpg "Corrour Bothy")](https://www.flickr.com/photos/black_friction/4738648490/)
+[![Corrour Bothy](https://live.staticflickr.com/4120/4738648490_746b687e1d_b.jpg "Corrour Bothy")](https://www.flickr.com/photos/black_friction/4738648490/))
 
 
 
-[![The track up Coire Odhar](https://live.staticflickr.com/4080/4738024711_4da77af64a_b.jpg "The track up Coire Odhar")](https://www.flickr.com/photos/black_friction/4738024711/)
+[![The track up Coire Odhar](https://live.staticflickr.com/4080/4738024711_4da77af64a_b.jpg "The track up Coire Odhar")](https://www.flickr.com/photos/black_friction/4738024711/))
 
 
 
@@ -124,15 +124,15 @@ At the bealach I dropped my bag behind a tussock and then, with a spring in my l
 
 
 
-[![Cairn Toul](https://live.staticflickr.com/4140/4738030961_3d24025320_b.jpg "Cairn Toul")](https://www.flickr.com/photos/black_friction/4738030961/)
+[![Cairn Toul](https://live.staticflickr.com/4140/4738030961_3d24025320_b.jpg "Cairn Toul")](https://www.flickr.com/photos/black_friction/4738030961/))
 
 
 
-[![Glen Dee from the Devil's Point](https://live.staticflickr.com/4139/4738676908_06528cf8dd_b.jpg "Glen Dee from the Devil's Point")](https://www.flickr.com/photos/black_friction/4738676908/)
+[![Glen Dee from the Devil's Point](https://live.staticflickr.com/4139/4738676908_06528cf8dd_b.jpg "Glen Dee from the Devil's Point")](https://www.flickr.com/photos/black_friction/4738676908/))
 
 
 
-[![Summit of the Devil's Point in the morning light](https://live.staticflickr.com/4136/4738045569_b80e71a5dd_b.jpg "Summit of the Devil's Point in the morning light")](https://www.flickr.com/photos/black_friction/4738045569/)
+[![Summit of the Devil's Point in the morning light](https://live.staticflickr.com/4136/4738045569_b80e71a5dd_b.jpg "Summit of the Devil's Point in the morning light")](https://www.flickr.com/photos/black_friction/4738045569/))
 
 
 
@@ -140,15 +140,15 @@ I picked out Beinn Bhrotain and Monadh Mor above Glen Geusachan. To the south al
 
 
 
-[![Looking along the Lairig Ghru](https://live.staticflickr.com/4100/4738062681_ac793c8383_b.jpg "Looking along the Lairig Ghru")](https://www.flickr.com/photos/black_friction/4738062681/)
+[![Looking along the Lairig Ghru](https://live.staticflickr.com/4100/4738062681_ac793c8383_b.jpg "Looking along the Lairig Ghru")](https://www.flickr.com/photos/black_friction/4738062681/))
 
 
 
-[![East from the Devil's Point](https://live.staticflickr.com/4074/4738057703_357a06fc57_b.jpg "East from the Devil's Point")](https://www.flickr.com/photos/black_friction/4738057703/)
+[![East from the Devil's Point](https://live.staticflickr.com/4074/4738057703_357a06fc57_b.jpg "East from the Devil's Point")](https://www.flickr.com/photos/black_friction/4738057703/))
 
 
 
-[![Clouds over Monadh Mor](https://live.staticflickr.com/4102/4738073129_8d63e21d36_b.jpg "Clouds over Monadh Mor")](https://www.flickr.com/photos/black_friction/4738073129/)
+[![Clouds over Monadh Mor](https://live.staticflickr.com/4102/4738073129_8d63e21d36_b.jpg "Clouds over Monadh Mor")](https://www.flickr.com/photos/black_friction/4738073129/))
 
 
 
@@ -156,7 +156,7 @@ After this refreshing wake-up I returned to the bealach and then continued on th
 
 
 
-[![Coire an t-Saighdeir](https://live.staticflickr.com/4094/4738721946_544c8d0940_b.jpg "Coire an t-Saighdeir")](https://www.flickr.com/photos/black_friction/4738721946/)
+[![Coire an t-Saighdeir](https://live.staticflickr.com/4094/4738721946_544c8d0940_b.jpg "Coire an t-Saighdeir")](https://www.flickr.com/photos/black_friction/4738721946/))
 
 
 
@@ -164,7 +164,7 @@ There were no views so I continued on, dropping off Cairn Toul to the col and th
 
 
 
-[![The Lairig Ghru beyond the Lochan Uaine](https://live.staticflickr.com/4098/4738732860_53826b47cf_b.jpg "The Lairig Ghru beyond the Lochan Uaine")](https://www.flickr.com/photos/black_friction/4738732860/)
+[![The Lairig Ghru beyond the Lochan Uaine](https://live.staticflickr.com/4098/4738732860_53826b47cf_b.jpg "The Lairig Ghru beyond the Lochan Uaine")](https://www.flickr.com/photos/black_friction/4738732860/))
 
 
 
@@ -172,7 +172,7 @@ Once at the summit of the Angel's Peak, my third Munro of the day, I was once ag
 
 
 
-[![Summit of The Angel's Peak](https://live.staticflickr.com/4114/4738103793_848cb1dfa7_b.jpg "Summit of The Angel's Peak")](https://www.flickr.com/photos/black_friction/4738103793/)
+[![Summit of The Angel's Peak](https://live.staticflickr.com/4114/4738103793_848cb1dfa7_b.jpg "Summit of The Angel's Peak")](https://www.flickr.com/photos/black_friction/4738103793/))
 
 
 
@@ -180,15 +180,15 @@ I returned to the bealach below the Devil's Point by a more direct route, contou
 
 
 
-[![Mist over Cairn Toul](https://live.staticflickr.com/4075/4738742722_9d42c98a1b_b.jpg "Mist over Cairn Toul")](https://www.flickr.com/photos/black_friction/4738742722/)
+[![Mist over Cairn Toul](https://live.staticflickr.com/4075/4738742722_9d42c98a1b_b.jpg "Mist over Cairn Toul")](https://www.flickr.com/photos/black_friction/4738742722/))
 
 
 
-[![Returning to the bealach](https://live.staticflickr.com/4098/4738115967_c7a63f31c5_b.jpg "Returning to the bealach")](https://www.flickr.com/photos/black_friction/4738115967/)
+[![Returning to the bealach](https://live.staticflickr.com/4098/4738115967_c7a63f31c5_b.jpg "Returning to the bealach")](https://www.flickr.com/photos/black_friction/4738115967/))
 
 
 
-[![Distant sunlight](https://live.staticflickr.com/4095/4738745056_9ff6087b15_b.jpg "Distant sunlight")](https://www.flickr.com/photos/black_friction/4738745056/)
+[![Distant sunlight](https://live.staticflickr.com/4095/4738745056_9ff6087b15_b.jpg "Distant sunlight")](https://www.flickr.com/photos/black_friction/4738745056/))
 
 
 
@@ -196,11 +196,11 @@ After picking up my bag I dropped down by my route of ascent and once again join
 
 
 
-[![Dropping into the Coire](https://live.staticflickr.com/4097/4738754622_a5c97c7d40_b.jpg "Dropping into the Coire")](https://www.flickr.com/photos/black_friction/4738754622/)
+[![Dropping into the Coire](https://live.staticflickr.com/4097/4738754622_a5c97c7d40_b.jpg "Dropping into the Coire")](https://www.flickr.com/photos/black_friction/4738754622/))
 
 
 
-[![Mist and cloud](https://live.staticflickr.com/4097/4738760812_e52da67304_b.jpg "Mist and cloud")](https://www.flickr.com/photos/black_friction/4738760812/) 
+[![Mist and cloud](https://live.staticflickr.com/4097/4738760812_e52da67304_b.jpg "Mist and cloud")](https://www.flickr.com/photos/black_friction/4738760812/)) 
 
 
 
