@@ -35,23 +35,23 @@ My aim with increasing the amount of backpacking trips this year was to boost my
 
 [![Big Sky Country](http://farm9.staticflickr.com/8054/8126309246_8b05961d41_b.jpg)](http://flic.kr/p/do6sC7 "Big Sky Country by Nick Bramhall, on Flickr")
 
-Favourite new Munros included the remote Ben Alder, north of Rannoch Moor, visited as part of [three day backpack](http://tms.invertedworld.co.uk/blog/2012/06/travels-in-the-ben-alder-area-part-1/) taking in a grand total of eight Munros. 
+Favourite new Munros included the remote Ben Alder, north of Rannoch Moor, visited as part of [three day backpack](http://tms.nickbramhall.com/blog/2012/06/travels-in-the-ben-alder-area-part-1/) taking in a grand total of eight Munros. 
 
 [![Ben Alder](http://farm8.staticflickr.com/7236/7188771075_0e1944ba56_b.jpg)](http://flic.kr/p/bXfkbT "Ben Alder by Nick Bramhall, on Flickr")
 
 [![Bealach Beithe and Beinn Bheoil](http://farm6.staticflickr.com/5346/7188297273_a523af5ed2_b.jpg)](http://flic.kr/p/bXcUkT "Bealach Beithe and Beinn Bheoil by Nick Bramhall, on Flickr")
 
-The awesome Beinn a’ Choire Sheasgaich, with its fabulous scrambly northern slope, lived up to expectations as part of a [three day trip in the Attadale Hills](http://tms.invertedworld.co.uk/blog/2012/05/backpacking-the-attadale-hills-slowly/).
+The awesome Beinn a’ Choire Sheasgaich, with its fabulous scrambly northern slope, lived up to expectations as part of a [three day trip in the Attadale Hills](http://tms.nickbramhall.com/blog/2012/05/backpacking-the-attadale-hills-slowly/).
 
 [![Bidein a' Choire Sheasgaich](http://farm8.staticflickr.com/7211/7173476244_005de7b9b0_b.jpg)](http://flic.kr/p/bVTWyU "Bidein a' Choire Sheasgaich by Nick Bramhall, on Flickr")
 
-And it was the worth all the repeat visits to finally get a view from Braeriach on a wonderful August day as part of a round of the [western Cairngorms](http://tms.invertedworld.co.uk/blog/2012/08/breaking-the-curse-of-braeriach/).
+And it was the worth all the repeat visits to finally get a view from Braeriach on a wonderful August day as part of a round of the [western Cairngorms](http://tms.nickbramhall.com/blog/2012/08/breaking-the-curse-of-braeriach/).
 
 [![The Garbh Coire from Braeriach](http://farm9.staticflickr.com/8283/7751361228_525acaf2b7_b.jpg)](http://flic.kr/p/cNXKD7 "The Garbh Coire from Braeriach by Nick Bramhall, on Flickr")
 
 Over the course of 2012 I covered almost 800km and climbed over 36,000m. Below are my distance and ascent by month for 2012.
 
-![Monthly Distance and Ascent](https://www.dropbox.com/s/ear2tt8wxsm9r73/monthly-distance-ascent-2012.png?raw=1)
+![Monthly Distance and Ascent](https://dl.dropbox.com/u/20505911/websites/tms/monthly-distance-ascent-2012.png)
 
 [![Snow storm](http://farm8.staticflickr.com/7157/6622436871_39a17e82d7_b.jpg)](http://flic.kr/p/b6cHL4 "Snow storm by Nick Bramhall, on Flickr")
 
@@ -69,7 +69,7 @@ Here are a few photos and thoughts from my favourite backpacking trips of the ye
 
 I took advantage of the unseasaonably warm late March weather to do my first two-night backpacking trip. I took the train from Aberdeen to Blair Atholl and then started heading north. From Glen Tilt I climbed my first Munro and then headed over to camp on a saddle below the summit of a neighbouring Corbett. After waking up to a hazy cloud inversion I made my way north through remote country, picking up another Corbett and three more Munros around the Tarf before dropping down to camp besides the upper River Feshie. It was an idyllic evening for star gazing. The final day took me north up the River Eidart and then across the western Cairngorm plateau to bag two more Munros with stunning views of Loch Einich. After a long ridgewalk there was a fun descent and then it was through the Rothiemurchas forest to reach the train station at Aviemore after a long day in unrelenting sunshine.
 
-[Read more about this trip here](http://tms.invertedworld.co.uk/blog/2012/03/atholl-forest-and-western-cairngorms-traverse-overview/)
+[Read more about this trip here](http://tms.nickbramhall.com/blog/2012/03/atholl-forest-and-western-cairngorms-traverse-overview/)
 
 [![Camped above the clouds](http://farm8.staticflickr.com/7073/7027768891_c113f95d7f_b.jpg)](http://flic.kr/p/bH29Ra "Camped above the clouds by Nick Bramhall, on Flickr")
 
@@ -89,7 +89,7 @@ I took advantage of the unseasaonably warm late March weather to do my first two
 
 The trip started with hot soup and a cake at Achnashellach, watching snow showers playing out over the mountains. Nevertheless I walked in under sunny skies and only a brief snow flurry on the first Corbett dampened the day. Walking along Beinn Tarsuinn’s summit plateau brought stunning views of the Attadale hills and then I found a stunning high camp near the unnamed lochan with views to Lurg Mhor and Bidein a’ Choire Sheasgaich. The next morning I scrambled up the stunning north wall of Cheesecake, gaining my first Munro summit, and then contoured around to Lurg Mhor. More scrambling got me to the eastern top and then it was an interesting descent to the shore of Loch Monar where I camped. The next morning good weather and further snow took me back high for another Munro before I decided to head back to the car with bad weather moving in.
 
-[Read more about this trip here](http://tms.invertedworld.co.uk/blog/2012/05/backpacking-the-attadale-hills-slowly/)
+[Read more about this trip here](http://tms.nickbramhall.com/blog/2012/05/backpacking-the-attadale-hills-slowly/)
 
 [![Torridon](http://farm6.staticflickr.com/5235/7006704962_081e807c6f_b.jpg)](http://flic.kr/p/bFacgY "Torridon by Nick Bramhall, on Flickr")
 
@@ -125,7 +125,7 @@ The trip started with hot soup and a cake at Achnashellach, watching snow shower
 
 Stepping off the train at the remote Corrour station halt is a fantastic way to start a three day adventure. I climbed above Loch Ossian and bagged a couple of Munros before dropping down to camp besides the Uisige Labhair. The next day was fabulous and I covered 20km and 6 Munros, including the stunning Ben Alder. The end of the day saw me camp high on the shoulder of Beinn Eibhinn enjoing stunning views out across the Highlands. The sunset was magnificent and sunrise the next morning was just as good. I headed out to Fersit by way of the still waters of Ghuilbinn and it was only as I was reaching the car that the good weather truly broke.
 
-[Read more about this trip here](http://tms.invertedworld.co.uk/blog/2012/06/travels-in-the-ben-alder-area-part-1/)
+[Read more about this trip here](http://tms.nickbramhall.com/blog/2012/06/travels-in-the-ben-alder-area-part-1/)
 
 [![The Mamores and Nevis beyond Loch Ossian](http://farm8.staticflickr.com/7095/7351148804_aea6256476_b.jpg)](http://flic.kr/p/ccAyqU "The Mamores and Nevis beyond Loch Ossian by Nick Bramhall, on Flickr")
 
@@ -145,7 +145,7 @@ Stepping off the train at the remote Corrour station halt is a fantastic way to 
 
 A uni friend, Rich, came up for a spot of bagging in the Cairngorms. From Whitewell we wandered through the misty Rothiemurchas eventually climbing above the cloud as we came to the Lairig Ghru. Under stunning blue skies I finally (third time lucky) got the glorious views from the summit of Braeriach. We made our way along the high cliffs to eventually make camp below the Devil’s Point. Heavy rain showers drifted in and out through the afternoon. That evening as Team GB were winning multiple Olympic golds we stood on the summit of the Devil’s Point. The next day started cloudy but we headed around to the Moine Mor and then across to Sgor Gaoith as the sun reappeared. After walking along the ridge we were caught by the rain again which was torrential until long after we had made it to the pub in Aviemore.
 
-[Read more about this trip here](http://tms.invertedworld.co.uk/blog/2012/08/breaking-the-curse-of-braeriach/)
+[Read more about this trip here](http://tms.nickbramhall.com/blog/2012/08/breaking-the-curse-of-braeriach/)
 
 [![The Lairig Ghru](http://farm9.staticflickr.com/8293/7751154942_23ab78e43a_b.jpg)](http://flic.kr/p/cNWGjs "The Lairig Ghru by Nick Bramhall, on Flickr")
 
@@ -175,7 +175,7 @@ A uni friend, Rich, came up for a spot of bagging in the Cairngorms. From Whitew
 
 The year’s big trip was cut short my a combination of weather and other committments but I still thoroughly enjoyed my four day backpack. From Glenfinnan station I completed the horseshoe of two Munros above the glen before dropping down to camp below Streap. Waking to wind and rain I took my foul weather route through Glen Dessary and then down to Sourlies and Loch Nevis. The weather brightened up and I headed up the River Carnach to eventually camp in the shadows of Knoydart. The third day saw me ascending Luinne Bheinn for the stunning views out over Knoydart and the west coast and then heading out via Barrisdale along Loch Hourn. A storm system came in overnight and I spent the last day fighting wind and rain below the South Shiel ridge to eventually reach my car at the Cluanie Inn.
 
-[Read more about this trip here](http://tms.invertedworld.co.uk/blog/2012/09/glenfinnan-to-glen-cluanie/)
+[Read more about this trip here](http://tms.nickbramhall.com/blog/2012/09/glenfinnan-to-glen-cluanie/)
 
 [![Glenfinnan](http://farm8.staticflickr.com/7251/7882310756_1ee783dece_b.jpg)](http://flic.kr/p/d1wUnA "Glenfinnan by Nick Bramhall, on Flickr")
 
@@ -205,7 +205,7 @@ I unofficially set myself some targets last year. Here is a review of how I did.
 
 [![Lochan Fada](http://farm6.staticflickr.com/5312/7433280650_2f01cf5c53_b.jpg)](http://flic.kr/p/cjRvnd "Lochan Fada by Nick Bramhall, on Flickr")
 
-1. Visit Fisherfield - completed in June with a [through-walk from Corrie Hallie near Dundonnel to Kinlochewe](http://tms.invertedworld.co.uk/blog/2012/06/through-the-great-wilderness/) via Sheneval, the Fionn Loch and Loch Maree. Next up will be a return to climb the Fisherfield Munros and Corbetts.
+1. Visit Fisherfield - completed in June with a [through-walk from Corrie Hallie near Dundonnel to Kinlochewe](http://tms.nickbramhall.com/blog/2012/06/through-the-great-wilderness/) via Sheneval, the Fionn Loch and Loch Maree. Next up will be a return to climb the Fisherfield Munros and Corbetts.
 2. Visit Knoydart - completed in August. I climbed Luinne Bheinn as part of my Glenfinnan to Glen Cluanie backpack. A glorious day in Knoydart but forecast bad weather meant I didn’t have time to linger and fully explore.
 3. Visit an Island (not Skye) - not completed this year. Jura is high on my list for next year.
 4. Complete a walk of 100 miles or 7 days - not completed. For various reasons I had to delay my planned long walk, originally intended for June, to August. Then I had to cut that down to 5 days to meet other obligations and finally bad weather caused me to finish the hike a day early...! I’m still pleased I did a 4 day/50 mile hike (whilst my longest backpack in 2012 was a 56 miler from Blair Atholl to Aviemore over two and a half days) and in general I pushed my trips further and longer this year, doing a few 2 night trips as well as a decent number of overnighters. Next year I have time booked off work to commit to a longer walk, up to 2 weeks.
@@ -227,4 +227,4 @@ Some highlights for me from other people’s blogs of Scottish trips included Ne
 
 [![Planetary Alignment](http://farm7.staticflickr.com/6039/7022100183_64007b7947_b.jpg)](http://flic.kr/p/bGw6JP "Planetary Alignment by Nick Bramhall, on Flickr")
 
-Finally, don’t forget you can read about all my 2012 trips by visiting [the reports page](http://tms.invertedworld.co.uk/reports/2012/), and view photos on Flickr by visiting this [2012 collection](http://www.flickr.com/photos/black_friction/collections/72157632389770387/). Thanks again for visiting.
+Finally, don’t forget you can read about all my 2012 trips by visiting [the reports page](http://tms.nickbramhall.com/reports/2012/), and view photos on Flickr by visiting this [2012 collection](http://www.flickr.com/photos/black_friction/collections/72157632389770387/). Thanks again for visiting.

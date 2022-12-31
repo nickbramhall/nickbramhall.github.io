@@ -22,7 +22,7 @@ Eventually I was alone on an empty road as I dropped to the Bridge of Orchy wher
 
 
 
-[![](http://farm5.static.flickr.com/4032/4356194139_4ab9651d19_b.jpg)](http://www.flickr.com/photos/53725815@N00/4356194139)
+[![Stillness](https://live.staticflickr.com/4032/4356194139_4ab9651d19_b.jpg "Stillness")](https://www.flickr.com/photos/black_friction/4356194139/)
 
 
 
@@ -30,7 +30,7 @@ There were only a couple of other vehicles in the car park and as I booted up I 
 
 
 
-[![](http://farm5.static.flickr.com/4063/4362807831_0718d333c5_b.jpg)](http://www.flickr.com/photos/53725815@N00/4362807831)
+[![Ben Starav group beyond the Abhainn Shira](https://live.staticflickr.com/4063/4362807831_0718d333c5_b.jpg "Ben Starav group beyond the Abhainn Shira")](https://www.flickr.com/photos/black_friction/4362807831/)
 
 
 
@@ -38,7 +38,7 @@ I left the short stretch of forest on a wide landrover track that followed the r
 
 
 
-[![](http://static.flickr.com/4058/4356781661_9003078e09_b.jpg)](http://www.flickr.com/photos/53725815@N00/4356781661)
+[![Towards Ben Starav](https://live.staticflickr.com/4058/4356781661_9003078e09_b.jpg "Towards Ben Starav")](https://www.flickr.com/photos/black_friction/4356781661/)
 
 
 
@@ -46,7 +46,7 @@ After only a kilometre or so I arrived at a strange green hut which is apparentl
 
 
 
-[![](http://farm3.static.flickr.com/2705/4362899951_3d13871664_b.jpg)](http://www.flickr.com/photos/53725815@N00/4362899951)
+[![The track to the mountains](https://live.staticflickr.com/2705/4362899951_3d13871664_b.jpg "The track to the mountains")](https://www.flickr.com/photos/black_friction/4362899951/)
 
 
 
@@ -54,7 +54,7 @@ This path was wet and boggy in places but as I climbed became increasingly icy. 
 
 
 
-[![](http://farm5.static.flickr.com/4028/4363761446_401d0758b6_b.jpg)](http://www.flickr.com/photos/53725815@N00/4363761446)
+[![Looking across towards Stob Ghabhar](https://live.staticflickr.com/4028/4363761446_401d0758b6_b.jpg "Looking across towards Stob Ghabhar")](https://www.flickr.com/photos/black_friction/4363761446/)
 
 
 
@@ -62,7 +62,7 @@ The benefit of having lying snow is you can take a more direct route up and here
 
 
 
-[![](http://farm3.static.flickr.com/2689/4363041971_6a66e58f2d_b.jpg)](http://www.flickr.com/photos/53725815@N00/4363041971)
+[![Stob Ghabhar](https://live.staticflickr.com/2689/4363041971_6a66e58f2d_b.jpg "Stob Ghabhar")](https://www.flickr.com/photos/black_friction/4363041971/)
 
 
 
@@ -70,7 +70,7 @@ The initial steepness of the ridge gives way to a broader, more plateau-like are
 
 
 
-[![](http://farm5.static.flickr.com/4015/4363056685_74c7c0150f_b.jpg)](http://www.flickr.com/photos/53725815@N00/4363056685)
+[![Summit cairn of Stob a' Choire Odhair](https://live.staticflickr.com/4015/4363056685_74c7c0150f_b.jpg "Summit cairn of Stob a' Choire Odhair")](https://www.flickr.com/photos/black_friction/4363056685/)
 
 
 
@@ -78,7 +78,7 @@ From here I descended the west ridge, a broad and snow-covered ramp which took m
 
 
 
-[![](http://farm3.static.flickr.com/2770/4369146718_d9bcb93b15_b.jpg)](http://www.flickr.com/photos/53725815@N00/4369146718)
+[![The bealach below Stob Ghabhar](https://live.staticflickr.com/2770/4369146718_d9bcb93b15_b.jpg "The bealach below Stob Ghabhar")](https://www.flickr.com/photos/black_friction/4369146718/)
 
 
 
@@ -86,7 +86,7 @@ Beyond the bealach the eastern ridge of Stob Ghabhar rose sharply up, turning to
 
 
 
-[![](http://farm5.static.flickr.com/4025/4369179354_c11c15e296_b.jpg)](http://www.flickr.com/photos/53725815@N00/4369179354)
+[![Rannoch Moor and Stob a'Choire Odhair](https://live.staticflickr.com/4025/4369179354_c11c15e296_b.jpg "Rannoch Moor and Stob a'Choire Odhair")](https://www.flickr.com/photos/black_friction/4369179354/)
 
 
 
@@ -94,15 +94,15 @@ I breathed a huge sigh of relief as I finally topped the rise and joined the wid
 
 
 
-[![](http://farm5.static.flickr.com/4070/4354650148_7618517331_b.jpg)](http://www.flickr.com/photos/53725815@N00/4354650148)
+[![Stob Ghabhar's Aonach Eagach Ridge](https://live.staticflickr.com/4070/4354650148_7618517331_b.jpg "Stob Ghabhar's Aonach Eagach Ridge")](https://www.flickr.com/photos/black_friction/4354650148/)
 
 
 
-[![](http://farm5.static.flickr.com/4027/4355974930_d04f3dd335_b.jpg)](http://www.flickr.com/photos/53725815@N00/4355974930)
+[![On the Aoneach Eagach](https://live.staticflickr.com/4027/4355974930_d04f3dd335_b.jpg "On the Aoneach Eagach")](https://www.flickr.com/photos/black_friction/4355974930/)
 
 
 
-[![](http://farm3.static.flickr.com/2764/4372732271_cdfd8c436e_b.jpg)](http://www.flickr.com/photos/53725815@N00/4372732271)
+[![Corniced edge](https://live.staticflickr.com/2764/4372732271_cdfd8c436e_b.jpg "Corniced edge")](https://www.flickr.com/photos/black_friction/4372732271/)
 
 
 
@@ -110,15 +110,15 @@ From here, standing in a chilled breeze I gazed northward over range upon range 
 
 
 
-[![](http://farm5.static.flickr.com/4039/4373493598_af011ac78a_b.jpg)](http://www.flickr.com/photos/53725815@N00/4373493598)
+[![Look back along the ridge](https://live.staticflickr.com/4039/4373493598_af011ac78a_b.jpg "Look back along the ridge")](https://www.flickr.com/photos/black_friction/4373493598/)
 
 
 
-[![](http://farm5.static.flickr.com/4046/4355204437_4528cb2f6f_b.jpg)](http://www.flickr.com/photos/53725815@N00/4355204437)
+[![Lunch with a view](https://live.staticflickr.com/4046/4355204437_4528cb2f6f_b.jpg "Lunch with a view")](https://www.flickr.com/photos/black_friction/4355204437/)
 
 
 
-[![](http://farm5.static.flickr.com/4013/4373503154_3c868f252f_b.jpg)](http://www.flickr.com/photos/53725815@N00/4373503154)
+[![View to Cruachan](https://live.staticflickr.com/4013/4373503154_3c868f252f_b.jpg "View to Cruachan")](https://www.flickr.com/photos/black_friction/4373503154/)
 
 
 

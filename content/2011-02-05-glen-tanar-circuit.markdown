@@ -19,7 +19,7 @@ The car park at Milltimber, just short of Glen Tanar house, was empty until our 
 
 <!--more-->
 
-[![](http://farm6.static.flickr.com/5214/5419459583_f26d3487b2_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419459583)
+[![The Glen Tanar Forest](https://live.staticflickr.com/5214/5419459583_f26d3487b2_b.jpg "The Glen Tanar Forest")](https://www.flickr.com/photos/black_friction/5419459583/)
 
 
 
@@ -27,7 +27,7 @@ Initially we followed the "Old Pine Trees" waymarked route that passes the chape
 
 
 
-[![](http://farm6.static.flickr.com/5094/5419463939_de11520e67_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419463939)
+[![Water of Allachy](https://live.staticflickr.com/5094/5419463939_de11520e67_b.jpg "Water of Allachy")](https://www.flickr.com/photos/black_friction/5419463939/)
 
 
 
@@ -35,7 +35,7 @@ The climb through the woods was pleasant; not too boggy, and without any of the 
 
 
 
-[![](http://farm6.static.flickr.com/5177/5419466661_61401fa715_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419466661)
+[![The track below Clachan Yell](https://live.staticflickr.com/5177/5419466661_61401fa715_b.jpg "The track below Clachan Yell")](https://www.flickr.com/photos/black_friction/5419466661/)
 
 
 
@@ -43,11 +43,11 @@ The track levelled off, then dropped steadily before climbing once again as the 
 
 
 
-[![](http://farm6.static.flickr.com/5251/5419465233_313d77df7d_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419465233)
+[![Clachan Yell](https://live.staticflickr.com/5251/5419465233_313d77df7d_b.jpg "Clachan Yell")](https://www.flickr.com/photos/black_friction/5419465233/)
 
 
 
-[![](http://farm6.static.flickr.com/5298/5419343854_74677ca026_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419343854)
+[![Approaching the summit of Clachan Yell](https://live.staticflickr.com/5298/5419343854_74677ca026_b.jpg "Approaching the summit of Clachan Yell")](https://www.flickr.com/photos/black_friction/5419343854/)
 
 
 
@@ -55,7 +55,7 @@ I arrived first and dropped my sack to enjoy an easy scramble up the tumble of b
 
 
 
-[![](http://farm6.static.flickr.com/5174/5420076970_753fa84305_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420076970)
+[![White Hill and the Glen Tanar Forest](https://live.staticflickr.com/5174/5420076970_753fa84305_b.jpg "White Hill and the Glen Tanar Forest")](https://www.flickr.com/photos/black_friction/5420076970/)
 
 
 
@@ -63,15 +63,15 @@ From here the views were expansive. Nearby the hills above Glen Tanar stretched 
 
 
 
-[![](http://farm6.static.flickr.com/5139/5419475267_f091e70862_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419475267)
+[![The Cairngorms above Glen Tanar](https://live.staticflickr.com/5139/5419475267_f091e70862_b.jpg "The Cairngorms above Glen Tanar")](https://www.flickr.com/photos/black_friction/5419475267/)
 
 
 
-[![](http://farm6.static.flickr.com/5258/5419476475_2fd77e5546_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419476475)
+[![Broad Cairn and Gathering Cairn](https://live.staticflickr.com/5258/5419476475_2fd77e5546_b.jpg "Broad Cairn and Gathering Cairn")](https://www.flickr.com/photos/black_friction/5419476475/)
 
 
 
-[![](http://farm6.static.flickr.com/5296/5420074512_bac14d30f1_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420074512)
+[![Aberdeenshire](https://live.staticflickr.com/5296/5420074512_bac14d30f1_b.jpg "Aberdeenshire")](https://www.flickr.com/photos/black_friction/5420074512/)
 
 
 
@@ -79,11 +79,11 @@ The others gradually made it to the top and then we dropped off the summit to se
 
 
 
-[![](http://farm6.static.flickr.com/5140/5419349836_07f660d112_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419349836)
+[![Summit of Clachan Yell](https://live.staticflickr.com/5140/5419349836_07f660d112_b.jpg "Summit of Clachan Yell")](https://www.flickr.com/photos/black_friction/5419349836/)
 
 
 
-[![](http://farm6.static.flickr.com/5212/5418742433_b03e56998f_b.jpg)](http://www.flickr.com/photos/53725815@N00/5418742433)
+[![Summit of Clachan Yell](https://live.staticflickr.com/5212/5418742433_b03e56998f_b.jpg "Summit of Clachan Yell")](https://www.flickr.com/photos/black_friction/5418742433/)
 
 
 
@@ -91,11 +91,11 @@ From here we went up onto the summit proper for a few photos and to take in the 
 
 
 
-[![](http://farm6.static.flickr.com/5251/5418744717_9661ef0a36_b.jpg)](http://www.flickr.com/photos/53725815@N00/5418744717)
+[![Broad Cairn and Gathering Cairn](https://live.staticflickr.com/5251/5418744717_9661ef0a36_b.jpg "Broad Cairn and Gathering Cairn")](https://www.flickr.com/photos/black_friction/5418744717/)
 
 
 
-[![](http://farm6.static.flickr.com/5291/5418747659_ff0dfe9f7c_b.jpg)](http://www.flickr.com/photos/53725815@N00/5418747659)
+[![Mt Keen and Lochnagar from Clachan Yell](https://live.staticflickr.com/5291/5418747659_ff0dfe9f7c_b.jpg "Mt Keen and Lochnagar from Clachan Yell")](https://www.flickr.com/photos/black_friction/5418747659/)
 
 
 
@@ -103,11 +103,11 @@ The plan from here was to move along this short chain of hills and then drop int
 
 
 
-[![](http://farm6.static.flickr.com/5098/5420082284_6eae3750e5_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420082284)
+[![Descent of Clachan Yell](https://live.staticflickr.com/5098/5420082284_6eae3750e5_b.jpg "Descent of Clachan Yell")](https://www.flickr.com/photos/black_friction/5420082284/)
 
 
 
-[![](http://farm6.static.flickr.com/5139/5419483041_69fb5e7d95_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419483041)
+[![Black Craig](https://live.staticflickr.com/5139/5419483041_69fb5e7d95_b.jpg "Black Craig")](https://www.flickr.com/photos/black_friction/5419483041/)
 
 
 
@@ -115,11 +115,11 @@ The views to Lochnagar and beyond were improving as we got closer, and the sun w
 
 
 
-[![](http://farm6.static.flickr.com/5052/5420088798_01652f5806_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420088798)
+[![Looking back to Clachan Yell](https://live.staticflickr.com/5052/5420088798_01652f5806_b.jpg "Looking back to Clachan Yell")](https://www.flickr.com/photos/black_friction/5420088798/)
 
 
 
-[![](http://farm6.static.flickr.com/5255/5419489815_baffbd7e07_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419489815)
+[![Broad Cairn, Gathering Cairn and Mt Keen](https://live.staticflickr.com/5255/5419489815_baffbd7e07_b.jpg "Broad Cairn, Gathering Cairn and Mt Keen")](https://www.flickr.com/photos/black_friction/5419489815/)
 
 
 
@@ -127,19 +127,19 @@ Black Craig led to Red Craig which had a very minor cairn on its summit and gave
 
 
 
-[![](http://farm6.static.flickr.com/5098/5419494611_e008181d6c_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419494611)
+[![Descending towards Red Craig](https://live.staticflickr.com/5098/5419494611_e008181d6c_b.jpg "Descending towards Red Craig")](https://www.flickr.com/photos/black_friction/5419494611/)
 
 
 
-[![](http://farm6.static.flickr.com/5171/5420100862_10fe253579_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420100862)
+[![Lochnagar above Glen Tanar](https://live.staticflickr.com/5171/5420100862_10fe253579_b.jpg "Lochnagar above Glen Tanar")](https://www.flickr.com/photos/black_friction/5420100862/)
 
 
 
-[![](http://farm6.static.flickr.com/5140/5419497473_af06b01478_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419497473)
+[![Mt Keen from Red Craig](https://live.staticflickr.com/5140/5419497473_af06b01478_b.jpg "Mt Keen from Red Craig")](https://www.flickr.com/photos/black_friction/5419497473/)
 
 
 
-[![](http://farm6.static.flickr.com/5014/5419506843_f4c348057b_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419506843)
+[![Descending into Glen Tanar](https://live.staticflickr.com/5014/5419506843_f4c348057b_b.jpg "Descending into Glen Tanar")](https://www.flickr.com/photos/black_friction/5419506843/)
 
 
 
@@ -147,15 +147,15 @@ The track, icy in places but with expansive views towards the head of Glen Tanar
 
 
 
-[![](http://farm6.static.flickr.com/5300/5419490943_2fcb42d22a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419490943)
+[![Glen Tanar](https://live.staticflickr.com/5300/5419490943_2fcb42d22a_b.jpg "Glen Tanar")](https://www.flickr.com/photos/black_friction/5419490943/)
 
 
 
-[![](http://farm6.static.flickr.com/5215/5419492017_b7796bf9bf_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419492017)
+[![Lochnagar](https://live.staticflickr.com/5215/5419492017_b7796bf9bf_b.jpg "Lochnagar")](https://www.flickr.com/photos/black_friction/5419492017/)
 
 
 
-[![](http://farm6.static.flickr.com/5018/5419493181_c9bfb64004_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419493181)
+[![Mount Keen](https://live.staticflickr.com/5018/5419493181_c9bfb64004_b.jpg "Mount Keen")](https://www.flickr.com/photos/black_friction/5419493181/)
 
 
 
@@ -163,11 +163,11 @@ The sun glinted off the chattering river and Mount Keen stood starkly silhouette
 
 
 
-[![](http://farm6.static.flickr.com/5212/5419354052_ca11c8bc4d_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419354052)
+[![Mount Keen above the Tanar](https://live.staticflickr.com/5212/5419354052_ca11c8bc4d_b.jpg "Mount Keen above the Tanar")](https://www.flickr.com/photos/black_friction/5419354052/)
 
 
 
-[![](http://farm6.static.flickr.com/5060/5420120334_3e4f2558e3_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420120334)
+[![The Water of Tanar](https://live.staticflickr.com/5060/5420120334_3e4f2558e3_b.jpg "The Water of Tanar")](https://www.flickr.com/photos/black_friction/5420120334/)
 
 
 
@@ -175,15 +175,15 @@ It was now a simple matter of walking back along the track to the car park at Mi
 
 
 
-[![](http://farm6.static.flickr.com/5180/5419518517_8d3f47d251_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419518517)
+[![Looking down Glen Tanar](https://live.staticflickr.com/5180/5419518517_8d3f47d251_b.jpg "Looking down Glen Tanar")](https://www.flickr.com/photos/black_friction/5419518517/)
 
 
 
-[![](http://farm6.static.flickr.com/5055/5420117974_a90ba48a13_b.jpg)](http://www.flickr.com/photos/53725815@N00/5420117974)
+[![Glen Tanar](https://live.staticflickr.com/5055/5420117974_a90ba48a13_b.jpg "Glen Tanar")](https://www.flickr.com/photos/black_friction/5420117974/)
 
 
 
-[![](http://farm6.static.flickr.com/5295/5419521223_47db9263ef_b.jpg)](http://www.flickr.com/photos/53725815@N00/5419521223)
+[![The ancient forest of Glen Tanar](https://live.staticflickr.com/5295/5419521223_47db9263ef_b.jpg "The ancient forest of Glen Tanar")](https://www.flickr.com/photos/black_friction/5419521223/)
 
 
 

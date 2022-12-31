@@ -23,11 +23,11 @@ It was a quiet Sunday morning with mist blossoming over Loch Garry and hovering 
 
 
 
-[![](http://farm2.static.flickr.com/1169/5132269259_212c0b9892_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132269259)
+[![From the parking spot](https://live.staticflickr.com/1169/5132269259_212c0b9892_b.jpg "From the parking spot")](https://www.flickr.com/photos/black_friction/5132269259/)
 
 
 
-[![](http://farm5.static.flickr.com/4062/5132875460_279898b043_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132875460)
+[![Morning sun lights up Sgurr na Ciche](https://live.staticflickr.com/4062/5132875460_279898b043_b.jpg "Morning sun lights up Sgurr na Ciche")](https://www.flickr.com/photos/black_friction/5132875460/)
 
 
 
@@ -35,15 +35,15 @@ The stalkers path that rises from the loch side can only be described as a work 
 
 
 
-[![](http://farm2.static.flickr.com/1087/5132281163_0dc54edf84_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132281163)
+[![Snow on Gairich](https://live.staticflickr.com/1087/5132281163_0dc54edf84_b.jpg "Snow on Gairich")](https://www.flickr.com/photos/black_friction/5132281163/)
 
 
 
-[![](http://farm2.static.flickr.com/1169/5132943772_c16087a4d2_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132943772)
+[![The track along Sron a Chuilinn](https://live.staticflickr.com/1169/5132943772_c16087a4d2_b.jpg "The track along Sron a Chuilinn")](https://www.flickr.com/photos/black_friction/5132943772/)
 
 
 
-[![](http://farm5.static.flickr.com/4050/5132965062_bbf5661c8d_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132965062)
+[![Loch Quoich](https://live.staticflickr.com/4050/5132965062_bbf5661c8d_b.jpg "Loch Quoich")](https://www.flickr.com/photos/black_friction/5132965062/)
 
 
 
@@ -51,15 +51,15 @@ With the freezing level well below our starting elevation we encountered ice, an
 
 
 
-[![](http://static.flickr.com/1229/5112051071_6160716ce1_b.jpg)](http://www.flickr.com/photos/53725815@N00/5112051071)
+[![The stalker's path above Loch Quoich](https://live.staticflickr.com/1229/5112051071_6160716ce1_b.jpg "The stalker's path above Loch Quoich")](https://www.flickr.com/photos/black_friction/5112051071/)
 
 
 
-[![](http://farm2.static.flickr.com/1164/5132356067_ee752d409b_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132356067)
+[![Glen Quoich](https://live.staticflickr.com/1164/5132356067_ee752d409b_b.jpg "Glen Quoich")](https://www.flickr.com/photos/black_friction/5132356067/)
 
 
 
-[![](http://farm5.static.flickr.com/4106/5132994296_2ff81c4ab2_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132994296)
+[![The South Glen Shield Ridge](https://live.staticflickr.com/4106/5132994296_2ff81c4ab2_b.jpg "The South Glen Shield Ridge")](https://www.flickr.com/photos/black_friction/5132994296/)
 
 
 
@@ -67,15 +67,15 @@ The path brought us along the west side of the lumpy ridge that runs up to the s
 
 
 
-[![](http://static.flickr.com/1192/5133071434_6fd984a872_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133071434)
+[![Pausing at the col below Gleouraich](https://live.staticflickr.com/1192/5133071434_6fd984a872_b.jpg "Pausing at the col below Gleouraich")](https://www.flickr.com/photos/black_friction/5133071434/)
 
 
 
-[![](http://static.flickr.com/4050/5133076666_ba175e8321_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133076666)
+[![The south-west ridge of Gleouraich](https://live.staticflickr.com/4050/5133076666_ba175e8321_b.jpg "The south-west ridge of Gleouraich")](https://www.flickr.com/photos/black_friction/5133076666/)
 
 
 
-[![](http://farm2.static.flickr.com/1124/5133081386_2245568d07_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133081386)
+[![Light rays over Loch Quoich](https://live.staticflickr.com/1124/5133081386_2245568d07_b.jpg "Light rays over Loch Quoich")](https://www.flickr.com/photos/black_friction/5133081386/)
 
 
 
@@ -83,11 +83,11 @@ We paused at the small col for a bite to eat and then it was onwards, following 
 
 
 
-[![](http://farm2.static.flickr.com/1350/5133102466_d409aaf065_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133102466)
+[![Climbing above Loch Quoich](https://live.staticflickr.com/1350/5133102466_d409aaf065_b.jpg "Climbing above Loch Quoich")](https://www.flickr.com/photos/black_friction/5133102466/)
 
 
 
-[![](http://farm2.static.flickr.com/1429/5132507023_59d2a6ce7a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132507023)
+[![Summit of Gleouraich](https://live.staticflickr.com/1429/5132507023_59d2a6ce7a_b.jpg "Summit of Gleouraich")](https://www.flickr.com/photos/black_friction/5132507023/)
 
  
 
@@ -95,13 +95,13 @@ Skipping over frozen boulders in the sunshine we made our way up the final ridge
 
 
 
-[![](http://farm5.static.flickr.com/4031/5132528221_16a100417c_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132528221)
+[![Approaching the summit of Gleouraich](https://live.staticflickr.com/4031/5132528221_16a100417c_b.jpg "Approaching the summit of Gleouraich")](https://www.flickr.com/photos/black_friction/5132528221/)
 
 
 
 
 
-[![](http://farm5.static.flickr.com/4083/5132545223_c090b35e4a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132545223)
+[![The summit of Gleouraich](https://live.staticflickr.com/4083/5132545223_c090b35e4a_b.jpg "The summit of Gleouraich")](https://www.flickr.com/photos/black_friction/5132545223/)
 
 
 
@@ -109,15 +109,15 @@ We had a clear view down Loch Quoich to the Rough Bounds of Knoydart as well as 
 
 
 
-[![](http://farm2.static.flickr.com/1093/5132694485_76e96a0430_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132694485)
+[![On the summit of Gleouraich](https://live.staticflickr.com/1093/5132694485_76e96a0430_b.jpg "On the summit of Gleouraich")](https://www.flickr.com/photos/black_friction/5132694485/)
 
 
 
-[![](http://farm2.static.flickr.com/1164/5132715693_e7207c1a7d_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132715693)
+[![Sgurr a' Mhaoraich](https://live.staticflickr.com/1164/5132715693_e7207c1a7d_b.jpg "Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5132715693/)
 
 
 
-[![](http://farm2.static.flickr.com/1378/5133311552_aebf5b67b6_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133311552)
+[![Loch Quoich and the hills of the Rough Bounds](https://live.staticflickr.com/1378/5133311552_aebf5b67b6_b.jpg "Loch Quoich and the hills of the Rough Bounds")](https://www.flickr.com/photos/black_friction/5133311552/)
 
  
 
@@ -129,15 +129,15 @@ From here we now had a clear route eastward along the fine ridge. The northern c
 
 
 
-[![](http://farm5.static.flickr.com/4017/5133347410_a44d71d416_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133347410)
+[![Gleouriach from the east](https://live.staticflickr.com/4017/5133347410_a44d71d416_b.jpg "Gleouriach from the east")](https://www.flickr.com/photos/black_friction/5133347410/)
 
 
 
-[![](http://farm2.static.flickr.com/1342/5133369774_e9811b5639_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133369774)
+[![Heading along the ridge](https://live.staticflickr.com/1342/5133369774_e9811b5639_b.jpg "Heading along the ridge")](https://www.flickr.com/photos/black_friction/5133369774/)
 
 
 
-[![](http://farm2.static.flickr.com/1421/5133393430_b0f0d1293a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133393430)
+[![Gleouraich](https://live.staticflickr.com/1421/5133393430_b0f0d1293a_b.jpg "Gleouraich")](https://www.flickr.com/photos/black_friction/5133393430/)
 
 
 
@@ -145,15 +145,15 @@ We continued along until we came over the top at the eastern end of Gleouraich's
 
 
 
-[![](http://farm5.static.flickr.com/4090/5132739669_e5ece0e556_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132739669)
+[![Creag Coire na Fiar Bhealaich](https://live.staticflickr.com/4090/5132739669_e5ece0e556_b.jpg "Creag Coire na Fiar Bhealaich")](https://www.flickr.com/photos/black_friction/5132739669/)
 
 
 
-[![](http://farm5.static.flickr.com/4064/5133410304_99bb2fa14e_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133410304)
+[![On the ridge to Spidean Mialach](https://live.staticflickr.com/4064/5133410304_99bb2fa14e_b.jpg "On the ridge to Spidean Mialach")](https://www.flickr.com/photos/black_friction/5133410304/)
 
 
 
-[![](http://farm2.static.flickr.com/1049/5133430540_140fb6835a_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133430540)
+[![The bealach and Spidean Mialach](https://live.staticflickr.com/1049/5133430540_140fb6835a_b.jpg "The bealach and Spidean Mialach")](https://www.flickr.com/photos/black_friction/5133430540/)
 
 
 
@@ -161,15 +161,15 @@ From here there is quite a loss of height, down a steeply zig-zagging path with 
 
 
 
-[![](http://farm5.static.flickr.com/4004/5132834549_62c9b9bf96_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132834549)
+[![Descending to the bealch](https://live.staticflickr.com/4004/5132834549_62c9b9bf96_b.jpg "Descending to the bealch")](https://www.flickr.com/photos/black_friction/5132834549/)
 
 
 
-[![](http://farm5.static.flickr.com/4036/5133447912_eedce4851e_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133447912)
+[![Spidean Mialach from the bealach](https://live.staticflickr.com/4036/5133447912_eedce4851e_b.jpg "Spidean Mialach from the bealach")](https://www.flickr.com/photos/black_friction/5133447912/)
 
 
 
-[![](http://farm2.static.flickr.com/1264/5133456950_08a17fd7a0_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133456950)
+[![Looking back from the bealach](https://live.staticflickr.com/1264/5133456950_08a17fd7a0_b.jpg "Looking back from the bealach")](https://www.flickr.com/photos/black_friction/5133456950/)
 
 
 
@@ -177,19 +177,19 @@ The re-ascent to the first prominence on the ridge was quite laborious, rising s
 
 
 
-[![](http://farm5.static.flickr.com/4149/5132894073_9d33e49f19_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132894073)
+[![The west ridge of Spidean Mialach](https://live.staticflickr.com/4149/5132894073_9d33e49f19_b.jpg "The west ridge of Spidean Mialach")](https://www.flickr.com/photos/black_friction/5132894073/)
 
 
 
-[![](http://farm2.static.flickr.com/1370/5133500982_08a22effe0_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133500982)
+[![Looking east from Spidean Mialach](https://live.staticflickr.com/1370/5133500982_08a22effe0_b.jpg "Looking east from Spidean Mialach")](https://www.flickr.com/photos/black_friction/5133500982/)
 
 
 
-[![](http://farm2.static.flickr.com/1438/5133505700_41b15906ba_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133505700)
+[![The South Glen Shiel Ridge](https://live.staticflickr.com/1438/5133505700_41b15906ba_b.jpg "The South Glen Shiel Ridge")](https://www.flickr.com/photos/black_friction/5133505700/)
 
 
 
-[![](http://farm5.static.flickr.com/4029/5132888115_1060145500_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132888115)
+[![Loch Quoich](https://live.staticflickr.com/4029/5132888115_1060145500_b.jpg "Loch Quoich")](https://www.flickr.com/photos/black_friction/5132888115/)
 
 
 
@@ -197,11 +197,11 @@ At this time, behind us, the hills of Kintail were slowly being engulfed by a pa
 
 
 
-[![](http://farm2.static.flickr.com/1421/5133558822_984520375f_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133558822)
+[![Approaching the summit of Spidean Mialach](https://live.staticflickr.com/1421/5133558822_984520375f_b.jpg "Approaching the summit of Spidean Mialach")](https://www.flickr.com/photos/black_friction/5133558822/)
 
 
 
-[![](http://static.flickr.com/1060/5133599610_3c524afc29_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133599610)
+[![Looking west to Gleouraich](https://live.staticflickr.com/1060/5133599610_3c524afc29_b.jpg "Looking west to Gleouraich")](https://www.flickr.com/photos/black_friction/5133599610/)
 
 
 
@@ -209,15 +209,15 @@ In the end there was nothing to worry about. I clambered up the final few snow c
 
 
 
-[![](http://static.flickr.com/1112/5132990215_df15f4f88b_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132990215)
+[![The summit cairn on Spidean Mialach](https://live.staticflickr.com/1112/5132990215_df15f4f88b_b.jpg "The summit cairn on Spidean Mialach")](https://www.flickr.com/photos/black_friction/5132990215/)
 
 
 
-[![](http://static.flickr.com/4107/5133613768_8b28af08bd_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133613768)
+[![On the summit of my 100th Munro](https://live.staticflickr.com/4107/5133613768_8b28af08bd_b.jpg "On the summit of my 100th Munro")](https://www.flickr.com/photos/black_friction/5133613768/)
 
 
 
-[![](http://static.flickr.com/1116/5132977883_e92f74ddbf_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132977883)
+[![Loch Quoich from Spidean Mialach](https://live.staticflickr.com/1116/5132977883_e92f74ddbf_b.jpg "Loch Quoich from Spidean Mialach")](https://www.flickr.com/photos/black_friction/5132977883/)
 
 
 
@@ -225,19 +225,19 @@ The views were just sublime. The snow shower, which passed over Loch Quoich and 
 
 
 
-[![](http://farm2.static.flickr.com/1334/5133263261_954fce0151_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133263261)
+[![Loch Quoich from Spidean Mialach](https://live.staticflickr.com/1334/5133263261_954fce0151_b.jpg "Loch Quoich from Spidean Mialach")](https://www.flickr.com/photos/black_friction/5133263261/)
 
 
 
-[![](http://farm5.static.flickr.com/4086/5133268693_604fd92b13_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133268693)
+[![Snow showers over Loch Quoich](https://live.staticflickr.com/4086/5133268693_604fd92b13_b.jpg "Snow showers over Loch Quoich")](https://www.flickr.com/photos/black_friction/5133268693/)
 
 
 
-[![](http://farm5.static.flickr.com/4024/5133919166_44d3a378de_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133919166)
+[![Loch Loyne and Loch Garry](https://live.staticflickr.com/4024/5133919166_44d3a378de_b.jpg "Loch Loyne and Loch Garry")](https://www.flickr.com/photos/black_friction/5133919166/)
 
 
 
-[![](http://farm2.static.flickr.com/1096/5133925828_1fdb1efd87_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133925828)
+[![The South Glen Shiel Ridge](https://live.staticflickr.com/1096/5133925828_1fdb1efd87_b.jpg "The South Glen Shiel Ridge")](https://www.flickr.com/photos/black_friction/5133925828/)
 
 
 
@@ -245,15 +245,15 @@ Once we were done with lunch and with taking in the views it was time to head ba
 
 
 
-[![](http://farm5.static.flickr.com/4040/5133939292_3fe9ecc8eb_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133939292)
+[![Snow shower passes over Loch Quoich](https://live.staticflickr.com/4040/5133939292_3fe9ecc8eb_b.jpg "Snow shower passes over Loch Quoich")](https://www.flickr.com/photos/black_friction/5133939292/)
 
 
 
-[![](http://farm5.static.flickr.com/4026/5133382805_3b367e727b_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133382805)
+[![Descending into Coire Dubh](https://live.staticflickr.com/4026/5133382805_3b367e727b_b.jpg "Descending into Coire Dubh")](https://www.flickr.com/photos/black_friction/5133382805/)
 
 
 
-[![](http://farm5.static.flickr.com/4003/5133990244_ced46f3074_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133990244)
+[![The bealach above Coire Dubh](https://live.staticflickr.com/4003/5133990244_ced46f3074_b.jpg "The bealach above Coire Dubh")](https://www.flickr.com/photos/black_friction/5133990244/)
 
 
 
@@ -261,15 +261,15 @@ From below Loch Fearna the ground got increasingly marshy. We picked our way as 
 
 
 
-[![](http://farm5.static.flickr.com/4029/5133425161_85a0f086a3_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133425161)
+[![Spidean Mialach](https://live.staticflickr.com/4029/5133425161_85a0f086a3_b.jpg "Spidean Mialach")](https://www.flickr.com/photos/black_friction/5133425161/)
 
 
 
-[![](http://farm5.static.flickr.com/4144/5134037210_8b6d0194bc_b.jpg)](http://www.flickr.com/photos/53725815@N00/5134037210)
+[![Loch Quoich](https://live.staticflickr.com/4144/5134037210_8b6d0194bc_b.jpg "Loch Quoich")](https://www.flickr.com/photos/black_friction/5134037210/)
 
 
 
-[![](http://farm2.static.flickr.com/1431/5133461261_ffdef967d9_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133461261)
+[![Tree besides Loch Quoich](https://live.staticflickr.com/1431/5133461261_ffdef967d9_b.jpg "Tree besides Loch Quoich")](https://www.flickr.com/photos/black_friction/5133461261/)
 
 
 
@@ -277,15 +277,15 @@ After this it was a simple matter of collecting the other car and then getting p
 
 
 
-[![](http://farm2.static.flickr.com/1052/5134077676_8d9145334b_b.jpg)](http://www.flickr.com/photos/53725815@N00/5134077676)
+[![Power](https://live.staticflickr.com/1052/5134077676_8d9145334b_b.jpg "Power")](https://www.flickr.com/photos/black_friction/5134077676/)
 
 
 
-[![](http://farm5.static.flickr.com/4091/5133469393_a2e7f0a1c5_b.jpg)](http://www.flickr.com/photos/53725815@N00/5133469393)
+[![The mountains around Loch Quoich](https://live.staticflickr.com/4091/5133469393_a2e7f0a1c5_b.jpg "The mountains around Loch Quoich")](https://www.flickr.com/photos/black_friction/5133469393/)
 
 
 
-[![](http://farm2.static.flickr.com/1343/5134082338_71072958a9_b.jpg)](http://www.flickr.com/photos/53725815@N00/5134082338)
+[![Loch Quoich](https://live.staticflickr.com/1343/5134082338_71072958a9_b.jpg "Loch Quoich")](https://www.flickr.com/photos/black_friction/5134082338/)
 
 
 
@@ -293,11 +293,11 @@ The first part of the journey for me was stop start as the light in Glen Garry w
 
 
 
-[![](http://farm2.static.flickr.com/1073/5134103390_303b4ddbc5_b.jpg)](http://www.flickr.com/photos/53725815@N00/5134103390)
+[![Loch Garry](https://live.staticflickr.com/1073/5134103390_303b4ddbc5_b.jpg "Loch Garry")](https://www.flickr.com/photos/black_friction/5134103390/)
 
 
 
-[![](http://farm2.static.flickr.com/1257/5134115990_062f7d9b26_b.jpg)](http://www.flickr.com/photos/53725815@N00/5134115990)
+[![Loch Loyne](https://live.staticflickr.com/1257/5134115990_062f7d9b26_b.jpg "Loch Loyne")](https://www.flickr.com/photos/black_friction/5134115990/)
 
 
 

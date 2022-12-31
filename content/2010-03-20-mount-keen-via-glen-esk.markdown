@@ -17,53 +17,53 @@ A sleepy bunch of Stockets emerged off the coach, bleary eyed, blinking in the M
 
 <!--more-->
 
-[![](http://farm3.static.flickr.com/2792/4449334964_cb0afd30eb_b.jpg)](http://www.flickr.com/photos/53725815@N00/4449334964)
+[![Walking through Glen Mark](https://live.staticflickr.com/2792/4449334964_cb0afd30eb_b.jpg "Walking through Glen Mark")](https://www.flickr.com/photos/black_friction/4449334964/)
 
-[![](http://farm5.static.flickr.com/4072/4448569315_83839c9fbc_b.jpg)](http://www.flickr.com/photos/53725815@N00/4448569315)
+[![The Queen's Well](https://live.staticflickr.com/4072/4448569315_83839c9fbc_b.jpg "The Queen's Well")](https://www.flickr.com/photos/black_friction/4448569315/)
  
 The Queenâ€™s Well was reached after an easy hour of walking. With the sun beating down we paused briefly to examine this Victorian curiosity before starting the climb up besides the Ladder burn. There was one particularly difficult river crossing with the snow melt creating a high, fast flowing stream. Most used sticks to negotiate the rocks whilst those with winter boots on waded across at the shallowest point. A couple who had ridden on bikes up Glen Mark appeared to have been defeated by this burn but we later saw them following us up the track.
 
-[![](http://farm3.static.flickr.com/2714/4449982643_1f9fb982a1_b.jpg)](http://www.flickr.com/photos/53725815@N00/4449982643)
+[![River crossing](https://live.staticflickr.com/2714/4449982643_1f9fb982a1_b.jpg "River crossing")](https://www.flickr.com/photos/black_friction/4449982643/)
 
-[![](http://farm3.static.flickr.com/2724/4449990043_2a4b2c8893_b.jpg)](http://www.flickr.com/photos/53725815@N00/4449990043)
+[![Leaving Glen Mark](https://live.staticflickr.com/2724/4449990043_2a4b2c8893_b.jpg "Leaving Glen Mark")](https://www.flickr.com/photos/black_friction/4449990043/)
  
 As we climbed the track the views behind opened up and above the corniced lip of the narrow glen's headwall was the very top of Mt Keen, looking deceptively close.
 
-[![](http://farm5.static.flickr.com/4048/4450775554_48ae7d683e_b.jpg)](http://www.flickr.com/photos/53725815@N00/4450775554)
+[![Mt Keen and cornice](https://live.staticflickr.com/4048/4450775554_48ae7d683e_b.jpg "Mt Keen and cornice")](https://www.flickr.com/photos/black_friction/4450775554/)
 
 The good track became snow covered as we climbed but it was sufficiently soft to not require crampons or other aid and we wended our way up to the halfway point up the zig zags. Here we paused for a morning brew, admiring the view back down the burn and watching various persons make their way up (or in some cases down) to Mt Keen.
 
-[![](http://farm3.static.flickr.com/2780/4450011775_b2253fd820_b.jpg)](http://www.flickr.com/photos/53725815@N00/4450011775)
+[![IMG_6459.CR2](https://live.staticflickr.com/2780/4450011775_b2253fd820_b.jpg "IMG_6459.CR2")](https://www.flickr.com/photos/black_friction/4450011775/)
 
-[![](http://farm3.static.flickr.com/2754/4450797836_97c8e58b8d_b.jpg)](http://www.flickr.com/photos/53725815@N00/4450797836)
+[![IMG_6462.CR2](https://live.staticflickr.com/2754/4450797836_97c8e58b8d_b.jpg "IMG_6462.CR2")](https://www.flickr.com/photos/black_friction/4450797836/)
 
 After the break we continued up quickly reaching the undulating plateau which rises as a series of crests to Mt Keen. It doesn't look too far away but as you start walking you realise it is a long slog. 
 
 Normally I believe you follow the Mounth road until a branch off to the right takes you to the summit, however all tracks were buried beneath snow and it seemed to make more sense jsut to head straight for the summit. This did involve some floudnering in deep snow, particularly along patches of heather where there seemed to be deep, snow filled trenches.
 
-[![](http://farm3.static.flickr.com/2764/4450045839_2fd2b1ebec_b.jpg)](http://www.flickr.com/photos/53725815@N00/4450045839)
+[![The summit snow slopes](https://live.staticflickr.com/2764/4450045839_2fd2b1ebec_b.jpg "The summit snow slopes")](https://www.flickr.com/photos/black_friction/4450045839/)
 
-[![](http://farm5.static.flickr.com/4014/4450813334_61194fd63c_b.jpg)](http://www.flickr.com/photos/53725815@N00/4450813334)
+[![IMG_6470.CR2](https://live.staticflickr.com/4014/4450813334_61194fd63c_b.jpg "IMG_6470.CR2")](https://www.flickr.com/photos/black_friction/4450813334/)
 
 Eventually though the going much steeper and we were on the final snow covered slopes up to the summit. The parallel lines of tracks showed we were finally back on the proper route. As we crested the summit and clambered up to the summit it became clear that the mountain had been sheltering us from a considerable wind. It was good to be back at the top of my first Munro. [I had climbed Mt Keen from the north on a pleasant November day in 2007](/blog/2007/11/glen-tanar-and-mount-keen/).
 
 Today featured more cloud, particularly over the high Cairngorms, but the lighting was dramatic and to the west Lochnagars cliffs were seen. After a couple of moments at the trig point it became clear that it would be prudent to drop down slightly and find some shelter. Luckily Keen's bouldery summit offered a reasonably sheltered stop so we paused here for lunch whilst the rest of the group made its way up to the summit.
 
-[![](http://farm5.static.flickr.com/4017/4450831130_2d3e6d3130_b.jpg)](http://www.flickr.com/photos/53725815@N00/4450831130)
+[![Lochnagar from Mt Keen](https://live.staticflickr.com/4017/4450831130_2d3e6d3130_b.jpg "Lochnagar from Mt Keen")](https://www.flickr.com/photos/black_friction/4450831130/)
 
-[![](http://farm5.static.flickr.com/4070/4450066317_beebab505e_b.jpg)](http://www.flickr.com/photos/53725815@N00/4450066317)
+[![Summit of Mt Keen](https://live.staticflickr.com/4070/4450066317_beebab505e_b.jpg "Summit of Mt Keen")](https://www.flickr.com/photos/black_friction/4450066317/)
 
 After lunch we left the other folk who were simply heading back down Mt Keen via their upward tracks. We dropped rapidly down steep slopes to the bealach with Braid Cairn. The sunshine started to be broken up by intermittent showers which passed over us and all down Deeside and over the Angus hills to our south. Morven in particularly kept disappearing into angry clouds, only to emerge back in to the sunshine a few moments later.
 
-[![](http://farm3.static.flickr.com/2726/4450863082_7cf06aa25e_b.jpg)](http://www.flickr.com/photos/53725815@N00/4450863082)
+[![Morven shrouded](https://live.staticflickr.com/2726/4450863082_7cf06aa25e_b.jpg "Morven shrouded")](https://www.flickr.com/photos/black_friction/4450863082/)
 
-[![](http://farm5.static.flickr.com/4059/4451185492_041277cafe_b.jpg)](http://www.flickr.com/photos/53725815@N00/4451185492)
+[![The bealach below Mt Keen](https://live.staticflickr.com/4059/4451185492_041277cafe_b.jpg "The bealach below Mt Keen")](https://www.flickr.com/photos/black_friction/4451185492/)
 
 We made our way slowly up the slopes of Braid Cairn, a shallow and featureless hillside that eventually turned into a featureless plateau. We turned to the north and soon came to the summit cairn. 
 
 [![Steady progress](http://farm3.static.flickr.com/2794/4450480367_9f71aba2d7_b.jpg)](http://www.flickr.com/photos/black_friction/4450480367/)
 
-[![](http://farm5.static.flickr.com/4010/4451347840_c2aeed7ff7_b.jpg)](http://www.flickr.com/photos/53725815@N00/4451347840)
+[![Still standing](https://live.staticflickr.com/4010/4451347840_c2aeed7ff7_b.jpg "Still standing")](https://www.flickr.com/photos/black_friction/4451347840/)
 
 From here we had views back onto Mt Keen and onwards towards Mt Battock and the nobble of Clachnaben. The land before us was a jumble of rolling, domed hills, covered in patchy snow and it wasn't exactly clear where our next summit was. A bit of mapreading and we picked out the horseshoe that is made up of Naked Hill closest to us and the Hill of Gairney beyond. We dropped down the steeper slopes of Braid Cairn which seemed well packed with snow until we were able to head across the bealach and up onto Naked Hill.
 

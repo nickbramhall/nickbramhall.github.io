@@ -23,7 +23,7 @@ By 9:30am I was booted up and climbing the reasonably steep track up through the
 
 
 
-[![](http://farm5.static.flickr.com/4015/4550816954_c0f11f3f6e_b.jpg)](http://www.flickr.com/photos/53725815@N00/4550816954)
+[![Cruach Innse from the track](https://live.staticflickr.com/4015/4550816954_c0f11f3f6e_b.jpg "Cruach Innse from the track")](https://www.flickr.com/photos/black_friction/4550816954/)
 
 
 
@@ -31,7 +31,7 @@ At about 269771 I left the track and climbed up greasy slopes to the bealach bel
 
 
 
-[![](http://farm5.static.flickr.com/4064/4550797684_76805f2582_b.jpg)](http://www.flickr.com/photos/53725815@N00/4550797684)
+[![Stob Coire na Ceannain](https://live.staticflickr.com/4064/4550797684_76805f2582_b.jpg "Stob Coire na Ceannain")](https://www.flickr.com/photos/black_friction/4550797684/)
 
 
 
@@ -39,7 +39,7 @@ The air was incredibly hazy so the views weren't anything special as I topped th
 
 
 
-[![](http://farm5.static.flickr.com/4042/4550389073_62395270db_b.jpg)](http://www.flickr.com/photos/53725815@N00/4550389073)
+[![The Easains enveloped in cloud](https://live.staticflickr.com/4042/4550389073_62395270db_b.jpg "The Easains enveloped in cloud")](https://www.flickr.com/photos/black_friction/4550389073/)
 
 
 
@@ -47,7 +47,7 @@ I crossed the stream at 284776, picking my way across the rocks, and then headed
 
 
 
-[![](http://farm5.static.flickr.com/4002/4550399425_b2581054d3_b.jpg)](http://www.flickr.com/photos/53725815@N00/4550399425)
+[![The summit plateau of Cnap Cruinn](https://live.staticflickr.com/4002/4550399425_b2581054d3_b.jpg "The summit plateau of Cnap Cruinn")](https://www.flickr.com/photos/black_friction/4550399425/)
 
 
 
@@ -55,7 +55,7 @@ The terrain was lumpy with several peat bogs to cross and no signs of footprints
 
 
 
-[![](http://farm5.static.flickr.com/4037/4551042010_8d96fb3d71_b.jpg)](http://www.flickr.com/photos/53725815@N00/4551042010)
+[![Sgurr Innse in the haze](https://live.staticflickr.com/4037/4551042010_8d96fb3d71_b.jpg "Sgurr Innse in the haze")](https://www.flickr.com/photos/black_friction/4551042010/)
 
 
 
@@ -63,7 +63,7 @@ I took another break at the small cairn marking the summit of Cnap Cruinn before
 
 
 
-[![](http://farm5.static.flickr.com/4042/4550138687_2cd74c699f_b.jpg)](http://www.flickr.com/photos/53725815@N00/4550138687)
+[![The Innses](https://live.staticflickr.com/4042/4550138687_2cd74c699f_b.jpg "The Innses")](https://www.flickr.com/photos/black_friction/4550138687/)
 
 
 
@@ -71,11 +71,11 @@ From here it was a brutal slog up the very steep northern slopes of Stob a' Choi
 
 
 
-[![](http://farm5.static.flickr.com/4001/4550365631_e6343a097c_b.jpg)](http://www.flickr.com/photos/53725815@N00/4550365631)
+[![Looking over Sgurr Innse to the Grey Corries](https://live.staticflickr.com/4001/4550365631_e6343a097c_b.jpg "Looking over Sgurr Innse to the Grey Corries")](https://www.flickr.com/photos/black_friction/4550365631/)
 
 
 
-[![](http://farm5.static.flickr.com/4031/4551147670_7152dd7940_b.jpg)](http://www.flickr.com/photos/53725815@N00/4551147670)
+[![Creag Meagaidh](https://live.staticflickr.com/4031/4551147670_7152dd7940_b.jpg "Creag Meagaidh")](https://www.flickr.com/photos/black_friction/4551147670/)
 
 
 
@@ -83,11 +83,11 @@ The upper reaches looked craggy but it was fairly straightforward to pick my way
 
 
 
-[![Stob Coire Easain](http://farm5.static.flickr.com/4008/4550522007_8a0b9b0b1a_z_b.jpg)](http://www.flickr.com/photos/black_friction/4550522007/)
+[![Stob Coire Easain](http://farm5.static.flickr.com/4008/4550522007_8a0b9b0b1a_b.jpg)](http://www.flickr.com/photos/black_friction/4550522007/)
 
 
 
-[![](http://farm5.static.flickr.com/4046/4550525181_70d62b0db2_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/4550525181)
+[![Loch Treig from Stob a' Choire Mheadhoin](https://live.staticflickr.com/4046/4550525181_70d62b0db2_b.jpg "Loch Treig from Stob a' Choire Mheadhoin")](https://www.flickr.com/photos/black_friction/4550525181/)
 
 
 
@@ -95,7 +95,7 @@ I dropped down to the bealach between the two, wading through delightfully powde
 
 
 
-[![](http://farm5.static.flickr.com/4031/4550705827_f1b2cfbe8f_z_b.jpg)](http://www.flickr.com/photos/53725815@N00/4550705827)
+[![Stob Coire Easain](https://live.staticflickr.com/4031/4550705827_9c46fd7a3c_b.jpg "Stob Coire Easain")](https://www.flickr.com/photos/black_friction/4550705827/)
 
 
 
@@ -103,11 +103,11 @@ Just as I started a group of walkers passed me heading back for Mheadhoin. The t
 
 
 
-[![](http://farm5.static.flickr.com/4068/4550738977_45e6861661_b.jpg)](http://www.flickr.com/photos/53725815@N00/4550738977)
+[![Summit cornice](https://live.staticflickr.com/4068/4550738977_45e6861661_b.jpg "Summit cornice")](https://www.flickr.com/photos/black_friction/4550738977/)
 
 
 
-[![](http://farm5.static.flickr.com/4050/4551382414_0a8fcf6dcc_b.jpg)](http://www.flickr.com/photos/53725815@N00/4551382414)
+[![IMG_7138.CR2](https://live.staticflickr.com/4050/4551382414_0a8fcf6dcc_b.jpg "IMG_7138.CR2")](https://www.flickr.com/photos/black_friction/4551382414/)
 
 
 
@@ -115,15 +115,15 @@ The views from here were quite stunning even without pristine air quality. I sat
 
 
 
-[![](http://farm5.static.flickr.com/4050/4551418904_547516a42c_b.jpg)](http://www.flickr.com/photos/53725815@N00/4551418904)
+[![The Grey Corries](https://live.staticflickr.com/4050/4551418904_547516a42c_b.jpg "The Grey Corries")](https://www.flickr.com/photos/black_friction/4551418904/)
 
 
 
-[![](http://farm5.static.flickr.com/4020/4551456132_026a93ccb6_b.jpg)](http://www.flickr.com/photos/53725815@N00/4551456132)
+[![Towards Ben Nevis](https://live.staticflickr.com/4020/4551456132_026a93ccb6_b.jpg "Towards Ben Nevis")](https://www.flickr.com/photos/black_friction/4551456132/)
 
 
 
-[![](http://farm5.static.flickr.com/4055/4550775001_85d8c678e4_b.jpg)](http://www.flickr.com/photos/53725815@N00/4550775001)
+[![Loch Treig](https://live.staticflickr.com/4055/4550775001_85d8c678e4_b.jpg "Loch Treig")](https://www.flickr.com/photos/black_friction/4550775001/)
 
 
 
@@ -131,11 +131,11 @@ After this enjoyable rest, basking in the hazy sunshine, I dropped north of the 
 
 
 
-[![](http://farm5.static.flickr.com/4026/4551485802_b269481468_b.jpg)](http://www.flickr.com/photos/53725815@N00/4551485802)
+[![The descent of Stob Coire Easain](https://live.staticflickr.com/4026/4551485802_b269481468_b.jpg "The descent of Stob Coire Easain")](https://www.flickr.com/photos/black_friction/4551485802/)
 
 
 
-[![](http://farm4.static.flickr.com/3145/4551249037_e18f5f9b87_b.jpg)](http://www.flickr.com/photos/53725815@N00/4551249037)
+[![The Easains](https://live.staticflickr.com/3145/4551249037_e18f5f9b87_b.jpg "The Easains")](https://www.flickr.com/photos/black_friction/4551249037/)
 
 
 
@@ -143,7 +143,7 @@ I admired the views down into Coire Laire and then picked my way on a distinct t
 
 
 
-[![](http://farm5.static.flickr.com/4049/4550335529_851fb3f58a_b.jpg)](http://www.flickr.com/photos/53725815@N00/4550335529)
+[![Sgurr Innse](https://live.staticflickr.com/4049/4550335529_851fb3f58a_b.jpg "Sgurr Innse")](https://www.flickr.com/photos/black_friction/4550335529/)
 
 
 
@@ -151,7 +151,7 @@ It wasn't an easy decision as the mountain looks a lot of fun, but feeling tired
 
 
 
-[![](http://farm5.static.flickr.com/4056/4551552518_1928e6f514_b.jpg)](http://www.flickr.com/photos/53725815@N00/4551552518)
+[![Bothy in the Lairig Leacach](https://live.staticflickr.com/4056/4551552518_1928e6f514_b.jpg "Bothy in the Lairig Leacach")](https://www.flickr.com/photos/black_friction/4551552518/)
 
 
 
@@ -159,7 +159,7 @@ From here it was a simple case of walking the 5km out back along the road, getti
 
 
 
-[![](http://farm5.static.flickr.com/4060/4550926505_4fa65b9762_b.jpg)](http://www.flickr.com/photos/53725815@N00/4550926505)
+[![Stepping Stones](https://live.staticflickr.com/4060/4550926505_4fa65b9762_b.jpg "Stepping Stones")](https://www.flickr.com/photos/black_friction/4550926505/)
 
 
 

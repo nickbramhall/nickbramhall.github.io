@@ -33,7 +33,7 @@ I didn't fancy doing this round from Balsporran and ending with a depressing tru
 
 
 
-[![](http://farm3.static.flickr.com/2777/4379925378_8c21680717_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379925378)
+[![Sow of Atholl](https://live.staticflickr.com/2777/4379925378_8c21680717_b.jpg "Sow of Atholl")](https://www.flickr.com/photos/black_friction/4379925378/)
 
  
 
@@ -45,7 +45,7 @@ The sun was just starting to light the very tips of the mountains as I stood by 
 
 
 
-[![](http://farm5.static.flickr.com/4023/4375914099_e060ac9c24_b.jpg)](http://www.flickr.com/photos/53725815@N00/4375914099)
+[![Frozen Morning](https://live.staticflickr.com/4023/4375914099_e060ac9c24_b.jpg "Frozen Morning")](https://www.flickr.com/photos/black_friction/4375914099/)
 
  
 
@@ -57,11 +57,11 @@ The track was covered by a mix of footprints and ski trails leading into the sti
 
 
 
-[![](http://farm5.static.flickr.com/4070/4379189741_0d60b2c615_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379189741)
+[![Sgairneach Mhor emerges](https://live.staticflickr.com/4070/4379189741_0d60b2c615_b.jpg "Sgairneach Mhor emerges")](https://www.flickr.com/photos/black_friction/4379189741/)
 
 
 
-[![](http://farm5.static.flickr.com/4033/4375972633_0f63c0cf49_b.jpg)](http://www.flickr.com/photos/53725815@N00/4375972633)
+[![Ice crystals](https://live.staticflickr.com/4033/4375972633_0f63c0cf49_b.jpg "Ice crystals")](https://www.flickr.com/photos/black_friction/4375972633/)
 
  
 
@@ -73,11 +73,11 @@ On the other side I climbed steeply out of the defile and aimed for the ridge-li
 
 
 
-[![](http://farm5.static.flickr.com/4062/4379950654_62fa0f1e73_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379950654)
+[![The Pass of Drumochter](https://live.staticflickr.com/4062/4379950654_62fa0f1e73_b.jpg "The Pass of Drumochter")](https://www.flickr.com/photos/black_friction/4379950654/)
 
 
 
-[![](http://farm5.static.flickr.com/4011/4379210517_3d7dceb6f1_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379210517)
+[![The Cairngorms](https://live.staticflickr.com/4011/4379210517_3d7dceb6f1_b.jpg "The Cairngorms")](https://www.flickr.com/photos/black_friction/4379210517/)
 
  
 
@@ -89,11 +89,11 @@ On the ridge the various tracks joined to make a beeline over multiple false sum
 
 
 
-[![](http://farm3.static.flickr.com/2706/4379962878_b2df18f0a7_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379962878)
+[![Summit slopes of Sgairneach Mhor](https://live.staticflickr.com/2706/4379962878_b2df18f0a7_b.jpg "Summit slopes of Sgairneach Mhor")](https://www.flickr.com/photos/black_friction/4379962878/)
 
 
 
-[![](http://farm3.static.flickr.com/2776/4376085975_167c68af0c_b.jpg)](http://www.flickr.com/photos/53725815@N00/4376085975)
+[![Ben Alder from Sgairneach Mhor](https://live.staticflickr.com/2776/4376085975_167c68af0c_b.jpg "Ben Alder from Sgairneach Mhor")](https://www.flickr.com/photos/black_friction/4376085975/)
 
  
 
@@ -105,11 +105,11 @@ The view from the summit was quite something. Ben Alder directly ahead of me was
 
 
 
-[![](http://farm3.static.flickr.com/2721/4379976290_d243c5aa8e_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379976290)
+[![The view south-east from Sgairneach Mhor](https://live.staticflickr.com/2721/4379976290_d243c5aa8e_b.jpg "The view south-east from Sgairneach Mhor")](https://www.flickr.com/photos/black_friction/4379976290/)
 
 
 
-[![](http://farm5.static.flickr.com/4008/4379980456_9accbde0d2_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379980456)
+[![The view north from Sgairneach Mhor](https://live.staticflickr.com/4008/4379980456_9accbde0d2_b.jpg "The view north from Sgairneach Mhor")](https://www.flickr.com/photos/black_friction/4379980456/)
 
  
 
@@ -121,7 +121,7 @@ The descent to the head of Coire Domhain was a delight, though would have been e
 
 
 
-[![](http://farm5.static.flickr.com/4062/4379989292_cc2155117c_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379989292)
+[![Climbing Beinn Udlamain](https://live.staticflickr.com/4062/4379989292_cc2155117c_b.jpg "Climbing Beinn Udlamain")](https://www.flickr.com/photos/black_friction/4379989292/)
 
  
 
@@ -133,11 +133,11 @@ The ice and snow had done wild things to the line of fence posts. I kept pausing
 
 
 
-[![](http://farm5.static.flickr.com/4066/4376222477_8c71ef9919_b.jpg)](http://www.flickr.com/photos/53725815@N00/4376222477)
+[![The hills above Coire Domhain](https://live.staticflickr.com/4066/4376222477_8c71ef9919_b.jpg "The hills above Coire Domhain")](https://www.flickr.com/photos/black_friction/4376222477/)
 
 
 
-[![](http://farm3.static.flickr.com/2683/4376972872_cf1732af92_b.jpg)](http://www.flickr.com/photos/53725815@N00/4376972872)
+[![Strangers in a strange landscape](https://live.staticflickr.com/2683/4376972872_cf1732af92_b.jpg "Strangers in a strange landscape")](https://www.flickr.com/photos/black_friction/4376972872/)
 
 
 
@@ -149,11 +149,11 @@ The cairn at the top of Beinn Udlamain was reached with little effort at 10:20am
 
 
 
-[![](http://farm5.static.flickr.com/4046/4379735449_9b51ae8215_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379735449)
+[![The summit of Ben Udlamain](https://live.staticflickr.com/4046/4379735449_9b51ae8215_b.jpg "The summit of Ben Udlamain")](https://www.flickr.com/photos/black_friction/4379735449/)
 
 
 
-[![](http://farm3.static.flickr.com/2729/4376868696_e1063a40a0_b.jpg)](http://www.flickr.com/photos/53725815@N00/4376868696)
+[![Ben Alder group beyond Loch Ericht](https://live.staticflickr.com/2729/4376868696_e1063a40a0_b.jpg "Ben Alder group beyond Loch Ericht")](https://www.flickr.com/photos/black_friction/4376868696/)
 
  
 
@@ -165,11 +165,11 @@ After restoring feeling to my fingers I headed off the northern side of Beinn Ud
 
 
 
-[![](http://static.flickr.com/2728/4377005038_385aff8488_b.jpg)](http://www.flickr.com/photos/53725815@N00/4377005038)
+[![The ridge below Beinn Udlamain](https://live.staticflickr.com/2728/4377005038_385aff8488_b.jpg "The ridge below Beinn Udlamain")](https://www.flickr.com/photos/black_friction/4377005038/)
 
 
 
-[![](http://farm5.static.flickr.com/4017/4376251511_b1fefd931f_b.jpg)](http://www.flickr.com/photos/53725815@N00/4376251511)
+[![Geal-charn](https://live.staticflickr.com/4017/4376251511_b1fefd931f_b.jpg "Geal-charn")](https://www.flickr.com/photos/black_friction/4376251511/)
 
  
 
@@ -181,11 +181,11 @@ After seeing no-one for the entire morning I suddenly came across the tourist ro
 
 
 
-[![](http://farm5.static.flickr.com/4067/4380575840_9eba4a578c_b.jpg)](http://www.flickr.com/photos/53725815@N00/4380575840)
+[![IMG_5581](https://live.staticflickr.com/4067/4380575840_9eba4a578c_b.jpg "IMG_5581")](https://www.flickr.com/photos/black_friction/4380575840/)
 
 
 
-[![](http://farm5.static.flickr.com/4072/4379783163_472db308bf_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379783163)
+[![IMG_5576](https://live.staticflickr.com/4072/4379783163_472db308bf_b.jpg "IMG_5576")](https://www.flickr.com/photos/black_friction/4379783163/)
 
  
 
@@ -197,15 +197,15 @@ Gael-charn is the best view point to appreciate the grandeur of the whole Ben Al
 
 
 
-[![](http://farm5.static.flickr.com/4049/4379779939_d68d9bfe17_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379779939)
+[![Ben Alder](https://live.staticflickr.com/4049/4379779939_d68d9bfe17_b.jpg "Ben Alder")](https://www.flickr.com/photos/black_friction/4379779939/)
 
 
 
-[![](http://static.flickr.com/4018/4377121548_ac17bb9905_b.jpg)](http://www.flickr.com/photos/53725815@N00/4377121548)
+[![Loch Ericht](https://live.staticflickr.com/4018/4377121548_ac17bb9905_b.jpg "Loch Ericht")](https://www.flickr.com/photos/black_friction/4377121548/)
 
 
 
-[![](http://farm3.static.flickr.com/2775/4376996370_36de002f62_b.jpg)](http://www.flickr.com/photos/53725815@N00/4376996370)
+[![Loch Ericht](https://live.staticflickr.com/2775/4376996370_36de002f62_b.jpg "Loch Ericht")](https://www.flickr.com/photos/black_friction/4376996370/)
 
  
 
@@ -217,11 +217,11 @@ After lunch I retraced my steps to the summit, went over to the other cairn (jus
 
 
 
-[![](http://farm3.static.flickr.com/2802/4379816919_bd1624889e_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379816919)
+[![IMG_5577](https://live.staticflickr.com/2802/4379816919_bd1624889e_b.jpg "IMG_5577")](https://www.flickr.com/photos/black_friction/4379816919/)
 
 
 
-[![](http://farm3.static.flickr.com/2790/4380617356_bb7e3b71a7_b.jpg)](http://www.flickr.com/photos/53725815@N00/4380617356)
+[![IMG_5666](https://live.staticflickr.com/2790/4380617356_bb7e3b71a7_b.jpg "IMG_5666")](https://www.flickr.com/photos/black_friction/4380617356/)
 
  
 
@@ -233,11 +233,11 @@ The cloud was beginning to shred as I considered my descent options. Earlier in 
 
 
 
-[![](http://farm3.static.flickr.com/2741/4380624766_7b6dc4aff5_b.jpg)](http://www.flickr.com/photos/53725815@N00/4380624766)
+[![IMG_5683](https://live.staticflickr.com/2741/4380624766_7b6dc4aff5_b.jpg "IMG_5683")](https://www.flickr.com/photos/black_friction/4380624766/)
 
 
 
-[![](http://farm5.static.flickr.com/4049/4379877591_366ceb50dd_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379877591)
+[![IMG_5697](https://live.staticflickr.com/4049/4379877591_366ceb50dd_b.jpg "IMG_5697")](https://www.flickr.com/photos/black_friction/4379877591/)
 
  
 
@@ -249,7 +249,7 @@ It was lucky I did this as a quick check showed me I had lost an ice axe on the 
 
 
 
-[![](http://farm5.static.flickr.com/4070/4380628302_98de388fb0_b.jpg)](http://www.flickr.com/photos/53725815@N00/4380628302)
+[![IMG_5684](https://live.staticflickr.com/4070/4380628302_98de388fb0_b.jpg "IMG_5684")](https://www.flickr.com/photos/black_friction/4380628302/)
 
  
 
@@ -261,7 +261,7 @@ The lighting conditions were markedly different now it was mid-afternoon and the
 
 
 
-[![](http://farm5.static.flickr.com/4016/4379890285_6b7668c890_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379890285)
+[![IMG_5708](https://live.staticflickr.com/4016/4379890285_6b7668c890_b.jpg "IMG_5708")](https://www.flickr.com/photos/black_friction/4379890285/)
 
 
 
@@ -277,4 +277,4 @@ The late afternoon sunlight over the A9 was wonderful as I headed back and with 
 
 
 
-[![](http://farm3.static.flickr.com/2745/4379968715_5a47aecd0d_b.jpg)](http://www.flickr.com/photos/53725815@N00/4379968715)
+[![Drumochter Summit](https://live.staticflickr.com/2745/4379968715_5a47aecd0d_b.jpg "Drumochter Summit")](https://www.flickr.com/photos/black_friction/4379968715/)
