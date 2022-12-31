@@ -23,11 +23,11 @@ With a coach it was slow going, particularly as half the glen seemed to be on it
 
 
 
-[![A damp start in Glen Clova](https://live.staticflickr.com/4122/4915314579_b22b1a7112_b.jpg "A damp start in Glen Clova")](https://www.flickr.com/photos/black_friction/4915314579/))
+[![A damp start in Glen Clova](https://live.staticflickr.com/4122/4915314579_b22b1a7112_b.jpg "A damp start in Glen Clova")](https://www.flickr.com/photos/black_friction/4915314579/)
 
 
 
-[![Today's route - Jock's Road to Braemar](https://live.staticflickr.com/4096/4915316771_ffc560a6f0_b.jpg "Today's route - Jock's Road to Braemar")](https://www.flickr.com/photos/black_friction/4915316771/))
+[![Today's route - Jock's Road to Braemar](https://live.staticflickr.com/4096/4915316771_ffc560a6f0_b.jpg "Today's route - Jock's Road to Braemar")](https://www.flickr.com/photos/black_friction/4915316771/)
 
 
 
@@ -39,7 +39,7 @@ Shortly after this we met a helpful Forestry Sign that said, â€œJockâ€™
 
 
 
-[![Road Closed](https://live.staticflickr.com/4138/4916301545_f71171ecf5_b.jpg "Road Closed")](https://www.flickr.com/photos/black_friction/4916301545/))
+[![Road Closed](https://live.staticflickr.com/4138/4916301545_f71171ecf5_b.jpg "Road Closed")](https://www.flickr.com/photos/black_friction/4916301545/)
 
 
 
@@ -47,11 +47,11 @@ At this point a reasonably heavy rain was falling, but the trees kept us shelter
 
 
 
-[![Head of Glen Doll](https://live.staticflickr.com/4099/4916915596_f6dbe47ae6_b.jpg "Head of Glen Doll")](https://www.flickr.com/photos/black_friction/4916915596/))
+[![Head of Glen Doll](https://live.staticflickr.com/4099/4916915596_f6dbe47ae6_b.jpg "Head of Glen Doll")](https://www.flickr.com/photos/black_friction/4916915596/)
 
 
 
-[![Besides the White Water](https://live.staticflickr.com/4077/4916319383_265d5fee74_b.jpg "Besides the White Water")](https://www.flickr.com/photos/black_friction/4916319383/))
+[![Besides the White Water](https://live.staticflickr.com/4077/4916319383_265d5fee74_b.jpg "Besides the White Water")](https://www.flickr.com/photos/black_friction/4916319383/)
 
 
 
@@ -59,15 +59,15 @@ After a brief break we tackled the main climb of the day: following Jockâ€™
 
 
 
-[![The road begins to climb](https://live.staticflickr.com/4080/4916335507_1e753350e1_b.jpg "The road begins to climb")](https://www.flickr.com/photos/black_friction/4916335507/))
+[![The road begins to climb](https://live.staticflickr.com/4080/4916335507_1e753350e1_b.jpg "The road begins to climb")](https://www.flickr.com/photos/black_friction/4916335507/)
 
 
 
-[![Climbing Jock's Road](https://live.staticflickr.com/4096/4916968458_0ff7e2f366_b.jpg "Climbing Jock's Road")](https://www.flickr.com/photos/black_friction/4916968458/))
+[![Climbing Jock's Road](https://live.staticflickr.com/4096/4916968458_0ff7e2f366_b.jpg "Climbing Jock's Road")](https://www.flickr.com/photos/black_friction/4916968458/)
 
 
 
-[![Sunshine in Glen Doll](https://live.staticflickr.com/4134/4916954444_e5a1acf7c8_b.jpg "Sunshine in Glen Doll")](https://www.flickr.com/photos/black_friction/4916954444/))
+[![Sunshine in Glen Doll](https://live.staticflickr.com/4134/4916954444_e5a1acf7c8_b.jpg "Sunshine in Glen Doll")](https://www.flickr.com/photos/black_friction/4916954444/)
 
 
 
@@ -75,11 +75,11 @@ At the summit of the path we paused again, exploring Daveyâ€™s Howff and th
 
 
 
-[![The summit of the climb out of Glen Doll](https://live.staticflickr.com/4077/4916382089_78e879c1a9_b.jpg "The summit of the climb out of Glen Doll")](https://www.flickr.com/photos/black_friction/4916382089/))
+[![The summit of the climb out of Glen Doll](https://live.staticflickr.com/4077/4916382089_78e879c1a9_b.jpg "The summit of the climb out of Glen Doll")](https://www.flickr.com/photos/black_friction/4916382089/)
 
 
 
-[![Memorial plaque](https://live.staticflickr.com/4140/4916388147_8249b8a1d7_b.jpg "Memorial plaque")](https://www.flickr.com/photos/black_friction/4916388147/))
+[![Memorial plaque](https://live.staticflickr.com/4140/4916388147_8249b8a1d7_b.jpg "Memorial plaque")](https://www.flickr.com/photos/black_friction/4916388147/)
 
 
 
@@ -87,11 +87,11 @@ Though there were still dark clouds about, the conditions seemed to be getting b
 
 
 
-[![Tom Buidhe and Tolmount](https://live.staticflickr.com/4082/4916428985_bf710486f0_b.jpg "Tom Buidhe and Tolmount")](https://www.flickr.com/photos/black_friction/4916428985/))
+[![Tom Buidhe and Tolmount](https://live.staticflickr.com/4082/4916428985_bf710486f0_b.jpg "Tom Buidhe and Tolmount")](https://www.flickr.com/photos/black_friction/4916428985/)
 
 
 
-[![Looking back to the Glen Doll hills](https://live.staticflickr.com/4135/4916452271_76b35b0e20_b.jpg "Looking back to the Glen Doll hills")](https://www.flickr.com/photos/black_friction/4916452271/))
+[![Looking back to the Glen Doll hills](https://live.staticflickr.com/4135/4916452271_76b35b0e20_b.jpg "Looking back to the Glen Doll hills")](https://www.flickr.com/photos/black_friction/4916452271/)
 
 
 
@@ -99,7 +99,7 @@ Once on the tops the excellent path dwindles somewhat until it became more of a 
 
 
 
-[![The top of Jock's Road](https://live.staticflickr.com/4136/4916439995_1c191f85f6_b.jpg "The top of Jock's Road")](https://www.flickr.com/photos/black_friction/4916439995/))
+[![The top of Jock's Road](https://live.staticflickr.com/4136/4916439995_1c191f85f6_b.jpg "The top of Jock's Road")](https://www.flickr.com/photos/black_friction/4916439995/)
 
 
 
@@ -107,7 +107,7 @@ We climbed up the steep slopes to regain the track and then followed this until 
 
 
 
-[![The Deeside Hills](https://live.staticflickr.com/4093/4916444061_477062a5da_b.jpg "The Deeside Hills")](https://www.flickr.com/photos/black_friction/4916444061/))
+[![The Deeside Hills](https://live.staticflickr.com/4093/4916444061_477062a5da_b.jpg "The Deeside Hills")](https://www.flickr.com/photos/black_friction/4916444061/)
 
 
 
@@ -115,11 +115,11 @@ After lunch we dropped back to the allt, crossed it by a convenient set of stone
 
 
 
-[![The not-very-awe-inspiring Tom Buidhe](https://live.staticflickr.com/4121/4917077876_58b841b298_b.jpg "The not-very-awe-inspiring Tom Buidhe")](https://www.flickr.com/photos/black_friction/4917077876/))
+[![The not-very-awe-inspiring Tom Buidhe](https://live.staticflickr.com/4121/4917077876_58b841b298_b.jpg "The not-very-awe-inspiring Tom Buidhe")](https://www.flickr.com/photos/black_friction/4917077876/)
 
 
 
-[![Looking back to the Glen Doll hills](https://live.staticflickr.com/4135/4916452271_76b35b0e20_b.jpg "Looking back to the Glen Doll hills")](https://www.flickr.com/photos/black_friction/4916452271/))
+[![Looking back to the Glen Doll hills](https://live.staticflickr.com/4135/4916452271_76b35b0e20_b.jpg "Looking back to the Glen Doll hills")](https://www.flickr.com/photos/black_friction/4916452271/)
 
 
 
@@ -127,15 +127,15 @@ As we came out on to the summit of Tom Buidhe we were hit by the full force of t
 
 
 
-[![Tolmount, Cairn Bannoch and Carn a' Coire Bhoidheach](https://live.staticflickr.com/4138/4917085856_5c541641b1_b.jpg "Tolmount, Cairn Bannoch and Carn a' Coire Bhoidheach")](https://www.flickr.com/photos/black_friction/4917085856/))
+[![Tolmount, Cairn Bannoch and Carn a' Coire Bhoidheach](https://live.staticflickr.com/4138/4917085856_5c541641b1_b.jpg "Tolmount, Cairn Bannoch and Carn a' Coire Bhoidheach")](https://www.flickr.com/photos/black_friction/4917085856/)
 
 
 
-[![The Perthshire Hills](https://live.staticflickr.com/4079/4916491589_a2ae580e22_b.jpg "The Perthshire Hills")](https://www.flickr.com/photos/black_friction/4916491589/))
+[![The Perthshire Hills](https://live.staticflickr.com/4079/4916491589_a2ae580e22_b.jpg "The Perthshire Hills")](https://www.flickr.com/photos/black_friction/4916491589/)
 
 
 
-[![The White Mounth Hills](https://live.staticflickr.com/4099/4917101442_3f6939b217_b.jpg "The White Mounth Hills")](https://www.flickr.com/photos/black_friction/4917101442/))
+[![The White Mounth Hills](https://live.staticflickr.com/4099/4917101442_3f6939b217_b.jpg "The White Mounth Hills")](https://www.flickr.com/photos/black_friction/4917101442/)
 
 
 
@@ -143,11 +143,11 @@ In the north could be seen the high Cairngorms, from the cliffs of Braeriach to 
 
 
 
-[![A gathering of Stockets](https://live.staticflickr.com/4101/4917117578_4c29db4470_b.jpg "A gathering of Stockets")](https://www.flickr.com/photos/black_friction/4917117578/))
+[![A gathering of Stockets](https://live.staticflickr.com/4101/4917117578_4c29db4470_b.jpg "A gathering of Stockets")](https://www.flickr.com/photos/black_friction/4917117578/)
 
 
 
-[![Perthshire Hills](https://live.staticflickr.com/4094/4917120536_5312fe3b70_b.jpg "Perthshire Hills")](https://www.flickr.com/photos/black_friction/4917120536/))
+[![Perthshire Hills](https://live.staticflickr.com/4094/4917120536_5312fe3b70_b.jpg "Perthshire Hills")](https://www.flickr.com/photos/black_friction/4917120536/)
 
 
 
@@ -155,15 +155,15 @@ From Tom Buidhe we took the obvious track around the lip of the gentle corrie an
 
 
 
-[![Approaching the summit of Tolmount](https://live.staticflickr.com/4102/4917139338_7400b1239d_b.jpg "Approaching the summit of Tolmount")](https://www.flickr.com/photos/black_friction/4917139338/))
+[![Approaching the summit of Tolmount](https://live.staticflickr.com/4102/4917139338_7400b1239d_b.jpg "Approaching the summit of Tolmount")](https://www.flickr.com/photos/black_friction/4917139338/)
 
 
 
-[![Looking down Loch Callater](https://live.staticflickr.com/4121/4916568349_e3c7d3939a_b.jpg "Looking down Loch Callater")](https://www.flickr.com/photos/black_friction/4916568349/))
+[![Looking down Loch Callater](https://live.staticflickr.com/4121/4916568349_e3c7d3939a_b.jpg "Looking down Loch Callater")](https://www.flickr.com/photos/black_friction/4916568349/)
 
 
 
-[![The White Mounth Hills](https://live.staticflickr.com/4120/4916564495_e3a58e9d41_b.jpg "The White Mounth Hills")](https://www.flickr.com/photos/black_friction/4916564495/))
+[![The White Mounth Hills](https://live.staticflickr.com/4120/4916564495_e3a58e9d41_b.jpg "The White Mounth Hills")](https://www.flickr.com/photos/black_friction/4916564495/)
 
 
 
@@ -171,11 +171,11 @@ The Tolmount was the name of Jock's Road in the days when it was a drover's road
 
 
 
-[![Broad Cairn](https://live.staticflickr.com/4121/4916579029_b07dbbdf5e_b.jpg "Broad Cairn")](https://www.flickr.com/photos/black_friction/4916579029/))
+[![Broad Cairn](https://live.staticflickr.com/4121/4916579029_b07dbbdf5e_b.jpg "Broad Cairn")](https://www.flickr.com/photos/black_friction/4916579029/)
 
 
 
-[![Below Fafernie](https://live.staticflickr.com/4080/4916983317_c59eef5ef3_b.jpg "Below Fafernie")](https://www.flickr.com/photos/black_friction/4916983317/))
+[![Below Fafernie](https://live.staticflickr.com/4080/4916983317_c59eef5ef3_b.jpg "Below Fafernie")](https://www.flickr.com/photos/black_friction/4916983317/)
 
 
 
@@ -183,15 +183,15 @@ The track is very vague at this point and it took a good bit of descending down 
 
 
 
-[![Dwarfed](https://live.staticflickr.com/4078/4917598520_74ef15058b_b.jpg "Dwarfed")](https://www.flickr.com/photos/black_friction/4917598520/))
+[![Dwarfed](https://live.staticflickr.com/4078/4917598520_74ef15058b_b.jpg "Dwarfed")](https://www.flickr.com/photos/black_friction/4917598520/)
 
 
 
-[![Descending Jock's Road](https://live.staticflickr.com/4134/4917003159_298090280e_b.jpg "Descending Jock's Road")](https://www.flickr.com/photos/black_friction/4917003159/))
+[![Descending Jock's Road](https://live.staticflickr.com/4134/4917003159_298090280e_b.jpg "Descending Jock's Road")](https://www.flickr.com/photos/black_friction/4917003159/)
 
 
 
-[![Looking down Glen Callater](https://live.staticflickr.com/4143/4917611538_c8586a2990_b.jpg "Looking down Glen Callater")](https://www.flickr.com/photos/black_friction/4917611538/))
+[![Looking down Glen Callater](https://live.staticflickr.com/4143/4917611538_c8586a2990_b.jpg "Looking down Glen Callater")](https://www.flickr.com/photos/black_friction/4917611538/)
 
 
 
@@ -199,15 +199,15 @@ Eventually, as the gradient eased, we joined a well constructed track that follo
 
 
 
-[![The view back up Jock's Road](https://live.staticflickr.com/4078/4917114359_e617357253_b.jpg "The view back up Jock's Road")](https://www.flickr.com/photos/black_friction/4917114359/))
+[![The view back up Jock's Road](https://live.staticflickr.com/4078/4917114359_e617357253_b.jpg "The view back up Jock's Road")](https://www.flickr.com/photos/black_friction/4917114359/)
 
 
 
-[![Tolmount](https://live.staticflickr.com/4102/4917054667_30ee7848f0_b.jpg "Tolmount")](https://www.flickr.com/photos/black_friction/4917054667/))
+[![Tolmount](https://live.staticflickr.com/4102/4917054667_30ee7848f0_b.jpg "Tolmount")](https://www.flickr.com/photos/black_friction/4917054667/)
 
 
 
-[![The cliffs near Coire Loch Kander](https://live.staticflickr.com/4074/4917749572_a694bbf25d_b.jpg "The cliffs near Coire Loch Kander")](https://www.flickr.com/photos/black_friction/4917749572/))
+[![The cliffs near Coire Loch Kander](https://live.staticflickr.com/4074/4917749572_a694bbf25d_b.jpg "The cliffs near Coire Loch Kander")](https://www.flickr.com/photos/black_friction/4917749572/)
 
 
 
@@ -215,15 +215,15 @@ The road took a rollercoaster route of ups and downs as the river turned across 
 
 
 
-[![The Allt in Glen Callater](https://live.staticflickr.com/4123/4917756964_341f67505f_b.jpg "The Allt in Glen Callater")](https://www.flickr.com/photos/black_friction/4917756964/))
+[![The Allt in Glen Callater](https://live.staticflickr.com/4123/4917756964_341f67505f_b.jpg "The Allt in Glen Callater")](https://www.flickr.com/photos/black_friction/4917756964/)
 
 
 
-[![Flowing towards Loch Callater](https://live.staticflickr.com/4121/4917796554_c0f1900d3b_b.jpg "Flowing towards Loch Callater")](https://www.flickr.com/photos/black_friction/4917796554/))
+[![Flowing towards Loch Callater](https://live.staticflickr.com/4121/4917796554_c0f1900d3b_b.jpg "Flowing towards Loch Callater")](https://www.flickr.com/photos/black_friction/4917796554/)
 
 
 
-[![Tolmount catches the sun](https://live.staticflickr.com/4137/4917761402_b99d2ab2c5_b.jpg "Tolmount catches the sun")](https://www.flickr.com/photos/black_friction/4917761402/))
+[![Tolmount catches the sun](https://live.staticflickr.com/4137/4917761402_b99d2ab2c5_b.jpg "Tolmount catches the sun")](https://www.flickr.com/photos/black_friction/4917761402/)
 
 
 
@@ -231,15 +231,15 @@ The track followed the eastern shore of the loch and continued to be excellent. 
 
 
 
-[![Loch Callater](https://live.staticflickr.com/4117/4917209615_caa36d50b0_b.jpg "Loch Callater")](https://www.flickr.com/photos/black_friction/4917209615/))
+[![Loch Callater](https://live.staticflickr.com/4117/4917209615_caa36d50b0_b.jpg "Loch Callater")](https://www.flickr.com/photos/black_friction/4917209615/)
 
 
 
-[![Glen Callater](https://live.staticflickr.com/4096/4917215831_2697dec77e_b.jpg "Glen Callater")](https://www.flickr.com/photos/black_friction/4917215831/))
+[![Glen Callater](https://live.staticflickr.com/4096/4917215831_2697dec77e_b.jpg "Glen Callater")](https://www.flickr.com/photos/black_friction/4917215831/)
 
 
 
-[![Loch and Light](https://live.staticflickr.com/4114/4915293449_c3984997e8_b.jpg "Loch and Light")](https://www.flickr.com/photos/black_friction/4915293449/))
+[![Loch and Light](https://live.staticflickr.com/4114/4915293449_c3984997e8_b.jpg "Loch and Light")](https://www.flickr.com/photos/black_friction/4915293449/)
 
 
 
@@ -247,11 +247,11 @@ Eventually, as the sun once again came out, we came to the lodge at the far end 
 
 
 
-[![The Bothy in Glen Callater](https://live.staticflickr.com/4140/4917246347_6b3b149dd4_b.jpg "The Bothy in Glen Callater")](https://www.flickr.com/photos/black_friction/4917246347/))
+[![The Bothy in Glen Callater](https://live.staticflickr.com/4140/4917246347_6b3b149dd4_b.jpg "The Bothy in Glen Callater")](https://www.flickr.com/photos/black_friction/4917246347/)
 
 
 
-[![The mountains beyond Loch Callater](https://live.staticflickr.com/4097/4917236873_a73e55bd68_b.jpg "The mountains beyond Loch Callater")](https://www.flickr.com/photos/black_friction/4917236873/))
+[![The mountains beyond Loch Callater](https://live.staticflickr.com/4097/4917236873_a73e55bd68_b.jpg "The mountains beyond Loch Callater")](https://www.flickr.com/photos/black_friction/4917236873/)
 
 
 
@@ -259,15 +259,15 @@ From here it was a simple case of following the land rover track down through th
 
 
 
-[![Bridge over the Callater](https://live.staticflickr.com/4078/4917850348_f96fab08c0_b.jpg "Bridge over the Callater")](https://www.flickr.com/photos/black_friction/4917850348/))
+[![Bridge over the Callater](https://live.staticflickr.com/4078/4917850348_f96fab08c0_b.jpg "Bridge over the Callater")](https://www.flickr.com/photos/black_friction/4917850348/)
 
 
 
-[![Sheep](https://live.staticflickr.com/4099/4917259477_515e9072c6_b.jpg "Sheep")](https://www.flickr.com/photos/black_friction/4917259477/))
+[![Sheep](https://live.staticflickr.com/4099/4917259477_515e9072c6_b.jpg "Sheep")](https://www.flickr.com/photos/black_friction/4917259477/)
 
 
 
-[![Morrone (Threatening Skies)](https://live.staticflickr.com/4097/4917263435_b675bb397f_b.jpg "Morrone (Threatening Skies)")](https://www.flickr.com/photos/black_friction/4917263435/))
+[![Morrone (Threatening Skies)](https://live.staticflickr.com/4097/4917263435_b675bb397f_b.jpg "Morrone (Threatening Skies)")](https://www.flickr.com/photos/black_friction/4917263435/)
 
 
 

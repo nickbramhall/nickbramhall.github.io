@@ -27,7 +27,7 @@ In the end, after a good night's sleep in the [brilliant Invergarry Lodge hostel
 
 
 
-[![Photo line up](https://live.staticflickr.com/1110/5123906964_d883e4225f_b.jpg "Photo line up")](https://www.flickr.com/photos/black_friction/5123906964/))
+[![Photo line up](https://live.staticflickr.com/1110/5123906964_d883e4225f_b.jpg "Photo line up")](https://www.flickr.com/photos/black_friction/5123906964/)
 
 
 
@@ -35,11 +35,11 @@ It was my first time out in this part of the country and I was instantly won ove
 
 
 
-[![Loch Quoich](https://live.staticflickr.com/1333/5123896602_60de9500f0_b.jpg "Loch Quoich")](https://www.flickr.com/photos/black_friction/5123896602/))
+[![Loch Quoich](https://live.staticflickr.com/1333/5123896602_60de9500f0_b.jpg "Loch Quoich")](https://www.flickr.com/photos/black_friction/5123896602/)
 
 
 
-[![Sgurr Mor and the Rough Bounds](https://live.staticflickr.com/1349/5123296697_ae81d241de_b.jpg "Sgurr Mor and the Rough Bounds")](https://www.flickr.com/photos/black_friction/5123296697/))
+[![Sgurr Mor and the Rough Bounds](https://live.staticflickr.com/1349/5123296697_ae81d241de_b.jpg "Sgurr Mor and the Rough Bounds")](https://www.flickr.com/photos/black_friction/5123296697/)
 
 
 
@@ -47,7 +47,7 @@ I should mention that today was a special day for one member of the Stocket Hill
 
 
 
-[![Gairich](https://live.staticflickr.com/4103/5123902002_c2c20e2b72_b.jpg "Gairich")](https://www.flickr.com/photos/black_friction/5123902002/))
+[![Gairich](https://live.staticflickr.com/4103/5123902002_c2c20e2b72_b.jpg "Gairich")](https://www.flickr.com/photos/black_friction/5123902002/)
 
 
 
@@ -55,11 +55,11 @@ From there we began the long but easy climb up the excellent path which graduall
 
 
 
-[![The summit of Gleouraich](https://live.staticflickr.com/4092/5123309415_cee913814a_b.jpg "The summit of Gleouraich")](https://www.flickr.com/photos/black_friction/5123309415/))
+[![The summit of Gleouraich](https://live.staticflickr.com/4092/5123309415_cee913814a_b.jpg "The summit of Gleouraich")](https://www.flickr.com/photos/black_friction/5123309415/)
 
 
 
-[![The hills of the Rough Bounds](https://live.staticflickr.com/1087/5123909160_9a65067ec9_b.jpg "The hills of the Rough Bounds")](https://www.flickr.com/photos/black_friction/5123909160/))
+[![The hills of the Rough Bounds](https://live.staticflickr.com/1087/5123909160_9a65067ec9_b.jpg "The hills of the Rough Bounds")](https://www.flickr.com/photos/black_friction/5123909160/)
 
 
 
@@ -67,11 +67,11 @@ However, the party piece during the early stages of the day was the South Glen S
 
 
 
-[![The South Glen Shiel Ridge](https://live.staticflickr.com/1396/5123753829_fba2f13f8e_b.jpg "The South Glen Shiel Ridge")](https://www.flickr.com/photos/black_friction/5123753829/))
+[![The South Glen Shiel Ridge](https://live.staticflickr.com/1396/5123753829_fba2f13f8e_b.jpg "The South Glen Shiel Ridge")](https://www.flickr.com/photos/black_friction/5123753829/)
 
 
 
-[![The South Shiel Ridge and Gleouraich](https://live.staticflickr.com/1264/5118322376_bb8694d6d1_b.jpg "The South Shiel Ridge and Gleouraich")](https://www.flickr.com/photos/black_friction/5118322376/))
+[![The South Shiel Ridge and Gleouraich](https://live.staticflickr.com/1264/5118322376_bb8694d6d1_b.jpg "The South Shiel Ridge and Gleouraich")](https://www.flickr.com/photos/black_friction/5118322376/)
 
 
 
@@ -79,11 +79,11 @@ We continued on and as we tracked back slightly to the summit cairn of Sgurr Coi
 
 
 
-[![Walking up the path](https://live.staticflickr.com/1046/5124570482_a1e26b3967_b.jpg "Walking up the path")](https://www.flickr.com/photos/black_friction/5124570482/))
+[![Walking up the path](https://live.staticflickr.com/1046/5124570482_a1e26b3967_b.jpg "Walking up the path")](https://www.flickr.com/photos/black_friction/5124570482/)
 
 
 
-[![On the summit of Sgurr Coire nan Eiricheallach](https://live.staticflickr.com/4059/5119545619_0d396a859a_b.jpg "On the summit of Sgurr Coire nan Eiricheallach")](https://www.flickr.com/photos/black_friction/5119545619/))
+[![On the summit of Sgurr Coire nan Eiricheallach](https://live.staticflickr.com/4059/5119545619_0d396a859a_b.jpg "On the summit of Sgurr Coire nan Eiricheallach")](https://www.flickr.com/photos/black_friction/5119545619/)
 
 
 
@@ -91,11 +91,11 @@ From the summit of Sgurr Coire nan Eiricheallach you get a great view up to the 
 
 
 
-[![Looking west to Sgurr a' Mhaoraich](https://live.staticflickr.com/4013/5124574000_5772747d2d_b.jpg "Looking west to Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5124574000/))
+[![Looking west to Sgurr a' Mhaoraich](https://live.staticflickr.com/4013/5124574000_5772747d2d_b.jpg "Looking west to Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5124574000/)
 
 
 
-[![South Shiel Ridge](https://live.staticflickr.com/1326/5124577248_b9d1919c51_b.jpg "South Shiel Ridge")](https://www.flickr.com/photos/black_friction/5124577248/))
+[![South Shiel Ridge](https://live.staticflickr.com/1326/5124577248_b9d1919c51_b.jpg "South Shiel Ridge")](https://www.flickr.com/photos/black_friction/5124577248/)
 
 
 
@@ -103,15 +103,15 @@ We made our way towards it, following the well worn track that keeps close to th
 
 
 
-[![On the ridge to Sgurr a' Mhaoraich](https://live.staticflickr.com/4009/5123989355_4b2ee60549_b.jpg "On the ridge to Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5123989355/))
+[![On the ridge to Sgurr a' Mhaoraich](https://live.staticflickr.com/4009/5123989355_4b2ee60549_b.jpg "On the ridge to Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5123989355/)
 
 
 
-[![Loch Quoich](https://live.staticflickr.com/4147/5123977797_7a3561be92_b.jpg "Loch Quoich")](https://www.flickr.com/photos/black_friction/5123977797/))
+[![Loch Quoich](https://live.staticflickr.com/4147/5123977797_7a3561be92_b.jpg "Loch Quoich")](https://www.flickr.com/photos/black_friction/5123977797/)
 
 
 
-[![The east ridge of Sgurr a' Mhaoraich](https://live.staticflickr.com/4065/5124601684_10b7a9d702_b.jpg "The east ridge of Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5124601684/))
+[![The east ridge of Sgurr a' Mhaoraich](https://live.staticflickr.com/4065/5124601684_10b7a9d702_b.jpg "The east ridge of Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5124601684/)
 
 
 
@@ -119,15 +119,15 @@ The final slope up to the rocky eastern col was very steep and covered in powder
 
 
 
-[![Summit of Sgurr a' Mhaoraich](https://live.staticflickr.com/4087/5124613778_cb47c6174a_b.jpg "Summit of Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5124613778/))
+[![Summit of Sgurr a' Mhaoraich](https://live.staticflickr.com/4087/5124613778_cb47c6174a_b.jpg "Summit of Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5124613778/)
 
 
 
-[![Approaching the summit of Sgurr a' Mhaoraich](https://live.staticflickr.com/4027/5119908949_891fb9eb98_b.jpg "Approaching the summit of Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5119908949/))
+[![Approaching the summit of Sgurr a' Mhaoraich](https://live.staticflickr.com/4027/5119908949_891fb9eb98_b.jpg "Approaching the summit of Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5119908949/)
 
 
 
-[![Looking east from Sgurr a' Mhaoraich](https://live.staticflickr.com/1379/5124620934_c5d7f1703a_b.jpg "Looking east from Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5124620934/))
+[![Looking east from Sgurr a' Mhaoraich](https://live.staticflickr.com/1379/5124620934_c5d7f1703a_b.jpg "Looking east from Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5124620934/)
 
 
 
@@ -135,11 +135,11 @@ It was a delight to climb up the final snow-covered slope to where the summit ca
 
 
 
-[![The summit ridge](https://live.staticflickr.com/4088/5123271729_8c1243a407_b.jpg "The summit ridge")](https://www.flickr.com/photos/black_friction/5123271729/))
+[![The summit ridge](https://live.staticflickr.com/4088/5123271729_8c1243a407_b.jpg "The summit ridge")](https://www.flickr.com/photos/black_friction/5123271729/)
 
 
 
-[![The summit of Sgurr a' Mhaoraich](https://live.staticflickr.com/4007/5123937039_86df424a0a_b.jpg "The summit of Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5123937039/))
+[![The summit of Sgurr a' Mhaoraich](https://live.staticflickr.com/4007/5123937039_86df424a0a_b.jpg "The summit of Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5123937039/)
 
 
 
@@ -147,15 +147,15 @@ The views were simply incredible. This summit occupies an enviable position, com
 
 
 
-[![Knoydart and Skye](https://live.staticflickr.com/4035/5120486761_824a4727a9_b.jpg "Knoydart and Skye")](https://www.flickr.com/photos/black_friction/5120486761/))
+[![Knoydart and Skye](https://live.staticflickr.com/4035/5120486761_824a4727a9_b.jpg "Knoydart and Skye")](https://www.flickr.com/photos/black_friction/5120486761/)
 
 
 
-[![The Saddle and Sgurr na Sgine](https://live.staticflickr.com/4021/5120511367_e7974fe43f_b.jpg "The Saddle and Sgurr na Sgine")](https://www.flickr.com/photos/black_friction/5120511367/))
+[![The Saddle and Sgurr na Sgine](https://live.staticflickr.com/4021/5120511367_e7974fe43f_b.jpg "The Saddle and Sgurr na Sgine")](https://www.flickr.com/photos/black_friction/5120511367/)
 
 
 
-[![The Glen Shiel Ridge and Gleouraich](https://live.staticflickr.com/4060/5120515505_859f5c7dc8_b.jpg "The Glen Shiel Ridge and Gleouraich")](https://www.flickr.com/photos/black_friction/5120515505/))
+[![The Glen Shiel Ridge and Gleouraich](https://live.staticflickr.com/4060/5120515505_859f5c7dc8_b.jpg "The Glen Shiel Ridge and Gleouraich")](https://www.flickr.com/photos/black_friction/5120515505/)
 
 
 
@@ -163,15 +163,15 @@ Once everyone had gathered on the summit the celebrations could begin. Various p
 
 
 
-[![All the Munros!](https://live.staticflickr.com/1346/5120479809_c487a69701_b.jpg "All the Munros!")](https://www.flickr.com/photos/black_friction/5120479809/))
+[![All the Munros!](https://live.staticflickr.com/1346/5120479809_c487a69701_b.jpg "All the Munros!")](https://www.flickr.com/photos/black_friction/5120479809/)
 
 
 
-[![Loch Quoich](https://live.staticflickr.com/1151/5125499208_86c4e422c7_b.jpg "Loch Quoich")](https://www.flickr.com/photos/black_friction/5125499208/))
+[![Loch Quoich](https://live.staticflickr.com/1151/5125499208_86c4e422c7_b.jpg "Loch Quoich")](https://www.flickr.com/photos/black_friction/5125499208/)
 
 
 
-[![The hills of the Rough Bounds](https://live.staticflickr.com/4024/5125496902_a073f0e509_b.jpg "The hills of the Rough Bounds")](https://www.flickr.com/photos/black_friction/5125496902/))
+[![The hills of the Rough Bounds](https://live.staticflickr.com/4024/5125496902_a073f0e509_b.jpg "The hills of the Rough Bounds")](https://www.flickr.com/photos/black_friction/5125496902/)
 
 
 
@@ -179,11 +179,11 @@ After the celebrations it was time to continue with the traverse. Although there
 
 
 
-[![Descending from Sgurr a' Mhaoraich](https://live.staticflickr.com/4008/5124896221_fc7e436f3e_b.jpg "Descending from Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5124896221/))
+[![Descending from Sgurr a' Mhaoraich](https://live.staticflickr.com/4008/5124896221_fc7e436f3e_b.jpg "Descending from Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5124896221/)
 
 
 
-[![The Saddle and the hills of Kintail](https://live.staticflickr.com/4064/5125504090_852f8bdf21_b.jpg "The Saddle and the hills of Kintail")](https://www.flickr.com/photos/black_friction/5125504090/))
+[![The Saddle and the hills of Kintail](https://live.staticflickr.com/4064/5125504090_852f8bdf21_b.jpg "The Saddle and the hills of Kintail")](https://www.flickr.com/photos/black_friction/5125504090/)
 
 
 
@@ -191,7 +191,7 @@ The feeling of space on this part of the hike was quite incredible. All around u
 
 
 
-[![Sgurr a' Mhaoraich Beag](https://live.staticflickr.com/1108/5124900841_be71efe308_b.jpg "Sgurr a' Mhaoraich Beag")](https://www.flickr.com/photos/black_friction/5124900841/))
+[![Sgurr a' Mhaoraich Beag](https://live.staticflickr.com/1108/5124900841_be71efe308_b.jpg "Sgurr a' Mhaoraich Beag")](https://www.flickr.com/photos/black_friction/5124900841/)
 
 
 
@@ -199,7 +199,7 @@ The initial descent from Sgurr a' Mhaoraich is steep and stony, a faint path pic
 
 
 
-[![Sgurr a' Mhaoraich](https://live.staticflickr.com/4040/5126538008_5ae2493c74_b.jpg "Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5126538008/))
+[![Sgurr a' Mhaoraich](https://live.staticflickr.com/4040/5126538008_5ae2493c74_b.jpg "Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5126538008/)
 
 
 
@@ -207,11 +207,11 @@ At the bealach we paused briefly before continuing up the more gentle incline to
 
 
 
-[![Loch Hourn](https://live.staticflickr.com/4144/5111982747_3ff90622b3_b.jpg "Loch Hourn")](https://www.flickr.com/photos/black_friction/5111982747/))
+[![Loch Hourn](https://live.staticflickr.com/4144/5111982747_3ff90622b3_b.jpg "Loch Hourn")](https://www.flickr.com/photos/black_friction/5111982747/)
 
 
 
-[![Loch Hourn](https://live.staticflickr.com/4058/5125936671_7ace78b8ff_b.jpg "Loch Hourn")](https://www.flickr.com/photos/black_friction/5125936671/))
+[![Loch Hourn](https://live.staticflickr.com/4058/5125936671_7ace78b8ff_b.jpg "Loch Hourn")](https://www.flickr.com/photos/black_friction/5125936671/)
 
 
 
@@ -219,11 +219,11 @@ After this people started to pick their own way down off the hill. My own route 
 
 
 
-[![The descent of Sgurr a' Mhaoraich](https://live.staticflickr.com/4027/5126454228_64150011f3_b.jpg "The descent of Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5126454228/))
+[![The descent of Sgurr a' Mhaoraich](https://live.staticflickr.com/4027/5126454228_64150011f3_b.jpg "The descent of Sgurr a' Mhaoraich")](https://www.flickr.com/photos/black_friction/5126454228/)
 
 
 
-[![The Rough Bounds](https://live.staticflickr.com/4151/5125844571_e51ff5a3f6_b.jpg "The Rough Bounds")](https://www.flickr.com/photos/black_friction/5125844571/))
+[![The Rough Bounds](https://live.staticflickr.com/4151/5125844571_e51ff5a3f6_b.jpg "The Rough Bounds")](https://www.flickr.com/photos/black_friction/5125844571/)
 
 
 
@@ -231,15 +231,15 @@ Layers were lost as we eventually picked up a boggy path that followed the strea
 
 
 
-[![Gairich reflected](https://live.staticflickr.com/1387/5126471256_d7b890fce3_b.jpg "Gairich reflected")](https://www.flickr.com/photos/black_friction/5126471256/))
+[![Gairich reflected](https://live.staticflickr.com/1387/5126471256_d7b890fce3_b.jpg "Gairich reflected")](https://www.flickr.com/photos/black_friction/5126471256/)
 
 
 
-[![Loch Quoich from the west](https://live.staticflickr.com/1405/5125856923_69da08458f_b.jpg "Loch Quoich from the west")](https://www.flickr.com/photos/black_friction/5125856923/))
+[![Loch Quoich from the west](https://live.staticflickr.com/1405/5125856923_69da08458f_b.jpg "Loch Quoich from the west")](https://www.flickr.com/photos/black_friction/5125856923/)
 
 
 
-[![Looking back to the day's hill](https://live.staticflickr.com/1067/5126478698_8e6732456f_b.jpg "Looking back to the day's hill")](https://www.flickr.com/photos/black_friction/5126478698/))
+[![Looking back to the day's hill](https://live.staticflickr.com/1067/5126478698_8e6732456f_b.jpg "Looking back to the day's hill")](https://www.flickr.com/photos/black_friction/5126478698/)
 
 
 
@@ -247,11 +247,11 @@ The going along the rolling road was enlivened by the sighting of an eagle (or s
 
 
 
-[![Gleouraich](https://live.staticflickr.com/4062/5126488138_61b953b3df_b.jpg "Gleouraich")](https://www.flickr.com/photos/black_friction/5126488138/))
+[![Gleouraich](https://live.staticflickr.com/4062/5126488138_61b953b3df_b.jpg "Gleouraich")](https://www.flickr.com/photos/black_friction/5126488138/)
 
 
 
-[![Loch Quoich](https://live.staticflickr.com/1355/5125886435_20a7704ded_b.jpg "Loch Quoich")](https://www.flickr.com/photos/black_friction/5125886435/))
+[![Loch Quoich](https://live.staticflickr.com/1355/5125886435_20a7704ded_b.jpg "Loch Quoich")](https://www.flickr.com/photos/black_friction/5125886435/)
 
 
 
@@ -259,11 +259,11 @@ We now had a long wait for the rest of the group to get back. Everyone had got q
 
 
 
-[![Evening at Loch Quoich](https://live.staticflickr.com/1328/5126501740_1f5294e205_b.jpg "Evening at Loch Quoich")](https://www.flickr.com/photos/black_friction/5126501740/))
+[![Evening at Loch Quoich](https://live.staticflickr.com/1328/5126501740_1f5294e205_b.jpg "Evening at Loch Quoich")](https://www.flickr.com/photos/black_friction/5126501740/)
 
 
 
-[![The hills of the Rough Bounds](https://live.staticflickr.com/1253/5126499576_371953aa70_b.jpg "The hills of the Rough Bounds")](https://www.flickr.com/photos/black_friction/5126499576/))
+[![The hills of the Rough Bounds](https://live.staticflickr.com/1253/5126499576_371953aa70_b.jpg "The hills of the Rough Bounds")](https://www.flickr.com/photos/black_friction/5126499576/)
 
 
 
@@ -271,11 +271,11 @@ The drive back was just as twisty as the way in had been but now we stopped a co
 
 
 
-[![Sunset over Loch Quoich](https://live.staticflickr.com/1231/5120561469_d30f9a5787_b.jpg "Sunset over Loch Quoich")](https://www.flickr.com/photos/black_friction/5120561469/))
+[![Sunset over Loch Quoich](https://live.staticflickr.com/1231/5120561469_d30f9a5787_b.jpg "Sunset over Loch Quoich")](https://www.flickr.com/photos/black_friction/5120561469/)
 
 
 
-[![Loch Garry](https://live.staticflickr.com/4053/5126504296_00f0fabecc_b.jpg "Loch Garry")](https://www.flickr.com/photos/black_friction/5126504296/))
+[![Loch Garry](https://live.staticflickr.com/4053/5126504296_00f0fabecc_b.jpg "Loch Garry")](https://www.flickr.com/photos/black_friction/5126504296/)
 
 
 

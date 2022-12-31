@@ -42,11 +42,11 @@ Out of the car and booted up with my light daypack on I set off up the Affric ro
 
 
 
-[![Looking down the River Affric](https://live.staticflickr.com/4016/4717539070_89cf586a71_b.jpg "Looking down the River Affric")](https://www.flickr.com/photos/black_friction/4717539070/))
+[![Looking down the River Affric](https://live.staticflickr.com/4016/4717539070_89cf586a71_b.jpg "Looking down the River Affric")](https://www.flickr.com/photos/black_friction/4717539070/)
 
 
 
-[![Approaching Glen Affric Lodge](https://live.staticflickr.com/4070/4716920851_cfbffb737b_b.jpg "Approaching Glen Affric Lodge")](https://www.flickr.com/photos/black_friction/4716920851/))
+[![Approaching Glen Affric Lodge](https://live.staticflickr.com/4070/4716920851_cfbffb737b_b.jpg "Approaching Glen Affric Lodge")](https://www.flickr.com/photos/black_friction/4716920851/)
 
 
 
@@ -54,11 +54,11 @@ Just before Affric Lodge I turned off the road onto a decent track that immediat
 
 
 
-[![Sgurr na Lapaich above Loch Affric](https://live.staticflickr.com/4024/4716928659_5d09f92f39_b.jpg "Sgurr na Lapaich above Loch Affric")](https://www.flickr.com/photos/black_friction/4716928659/))
+[![Sgurr na Lapaich above Loch Affric](https://live.staticflickr.com/4024/4716928659_5d09f92f39_b.jpg "Sgurr na Lapaich above Loch Affric")](https://www.flickr.com/photos/black_friction/4716928659/)
 
 
 
-[![Glen Affric](https://live.staticflickr.com/4026/4716935689_6fe1b8fd5b_b.jpg "Glen Affric")](https://www.flickr.com/photos/black_friction/4716935689/))
+[![Glen Affric](https://live.staticflickr.com/4026/4716935689_6fe1b8fd5b_b.jpg "Glen Affric")](https://www.flickr.com/photos/black_friction/4716935689/)
 
 
 
@@ -66,7 +66,7 @@ The track gained me height rapidly and then, as it turned a wide corner to head 
 
 
 
-[![Sgurr na Lapaich](https://live.staticflickr.com/4049/4716962145_7c6f0b1570_b.jpg "Sgurr na Lapaich")](https://www.flickr.com/photos/black_friction/4716962145/))
+[![Sgurr na Lapaich](https://live.staticflickr.com/4049/4716962145_7c6f0b1570_b.jpg "Sgurr na Lapaich")](https://www.flickr.com/photos/black_friction/4716962145/)
 
 
 
@@ -74,11 +74,11 @@ As I approached it, Sgurr na Lapaich changed shape and I began to see a way up t
 
 
 
-[![Loch Affric and Affric Lodge](https://live.staticflickr.com/4071/4719027822_9fe11643e9_b.jpg "Loch Affric and Affric Lodge")](https://www.flickr.com/photos/black_friction/4719027822/))
+[![Loch Affric and Affric Lodge](https://live.staticflickr.com/4071/4719027822_9fe11643e9_b.jpg "Loch Affric and Affric Lodge")](https://www.flickr.com/photos/black_friction/4719027822/)
 
 
 
-[![The Head of Loch Affric](https://live.staticflickr.com/4033/4718387105_83202506bf_b.jpg "The Head of Loch Affric")](https://www.flickr.com/photos/black_friction/4718387105/))
+[![The Head of Loch Affric](https://live.staticflickr.com/4033/4718387105_83202506bf_b.jpg "The Head of Loch Affric")](https://www.flickr.com/photos/black_friction/4718387105/)
 
 
 
@@ -86,11 +86,11 @@ I reached the cairn and was immediately hit by a strong northerly wind which for
 
 
 
-[![Màm Sodhail and Càrn Eige](https://live.staticflickr.com/4026/4720330184_5dee01d039_b.jpg "Màm Sodhail and Càrn Eige")](https://www.flickr.com/photos/black_friction/4720330184/))
+[![Màm Sodhail and Càrn Eige](https://live.staticflickr.com/4026/4720330184_5dee01d039_b.jpg "Màm Sodhail and Càrn Eige")](https://www.flickr.com/photos/black_friction/4720330184/)
 
 
 
-[![Sgurr na Lapaich](https://live.staticflickr.com/4055/4719703067_4592905a1c_b.jpg "Sgurr na Lapaich")](https://www.flickr.com/photos/black_friction/4719703067/))
+[![Sgurr na Lapaich](https://live.staticflickr.com/4055/4719703067_4592905a1c_b.jpg "Sgurr na Lapaich")](https://www.flickr.com/photos/black_friction/4719703067/)
 
 
 
@@ -102,11 +102,11 @@ It was now a matter of following the ridge along to the first Munro of the day, 
 
 
 
-[![The ridge to Màm Sodhail](https://live.staticflickr.com/4058/4719708039_7811d413e8_b.jpg "The ridge to Màm Sodhail")](https://www.flickr.com/photos/black_friction/4719708039/))
+[![The ridge to Màm Sodhail](https://live.staticflickr.com/4058/4719708039_7811d413e8_b.jpg "The ridge to Màm Sodhail")](https://www.flickr.com/photos/black_friction/4719708039/)
 
 
 
-[![Màm Sodhail and Càrn Eige](https://live.staticflickr.com/4067/4719728287_20dca74597_b.jpg "Màm Sodhail and Càrn Eige")](https://www.flickr.com/photos/black_friction/4719728287/))
+[![Màm Sodhail and Càrn Eige](https://live.staticflickr.com/4067/4719728287_20dca74597_b.jpg "Màm Sodhail and Càrn Eige")](https://www.flickr.com/photos/black_friction/4719728287/)
 
 
 
@@ -114,11 +114,11 @@ I passed a couple of people coming towards me and soon found myself winding up t
 
 
 
-[![Càrn Eige above Loch Uaine](https://live.staticflickr.com/4064/4720392996_3c402095a3_b.jpg "Càrn Eige above Loch Uaine")](https://www.flickr.com/photos/black_friction/4720392996/))
+[![Càrn Eige above Loch Uaine](https://live.staticflickr.com/4064/4720392996_3c402095a3_b.jpg "Càrn Eige above Loch Uaine")](https://www.flickr.com/photos/black_friction/4720392996/)
 
 
 
-[![Torridon and Mullardoch Hills](https://live.staticflickr.com/4018/4720396170_3b3a7cb950_b.jpg "Torridon and Mullardoch Hills")](https://www.flickr.com/photos/black_friction/4720396170/))
+[![Torridon and Mullardoch Hills](https://live.staticflickr.com/4018/4720396170_3b3a7cb950_b.jpg "Torridon and Mullardoch Hills")](https://www.flickr.com/photos/black_friction/4720396170/)
 
 
 
@@ -126,11 +126,11 @@ It was a brilliant place to sit, in the shelter of the cairn, basking in the sun
 
 
 
-[![Gleann a' Choilich and Beinn Fhionnlaidh](https://live.staticflickr.com/4061/4719764493_ae49f42a96_b.jpg "Gleann a' Choilich and Beinn Fhionnlaidh")](https://www.flickr.com/photos/black_friction/4719764493/))
+[![Gleann a' Choilich and Beinn Fhionnlaidh](https://live.staticflickr.com/4061/4719764493_ae49f42a96_b.jpg "Gleann a' Choilich and Beinn Fhionnlaidh")](https://www.flickr.com/photos/black_friction/4719764493/)
 
 
 
-[![Loch Uaine and Sgurr na Lapaich](https://live.staticflickr.com/4030/4719774389_5f6e34dc6b_b.jpg "Loch Uaine and Sgurr na Lapaich")](https://www.flickr.com/photos/black_friction/4719774389/))
+[![Loch Uaine and Sgurr na Lapaich](https://live.staticflickr.com/4030/4719774389_5f6e34dc6b_b.jpg "Loch Uaine and Sgurr na Lapaich")](https://www.flickr.com/photos/black_friction/4719774389/)
 
 
 
@@ -138,11 +138,11 @@ As the track now heads up Carn Eige I turned off and chose a descending line alo
 
 
 
-[![On the track to Beinn Fhionnlaidh](https://live.staticflickr.com/4014/4719786085_bf4be5c139_b.jpg "On the track to Beinn Fhionnlaidh")](https://www.flickr.com/photos/black_friction/4719786085/))
+[![On the track to Beinn Fhionnlaidh](https://live.staticflickr.com/4014/4719786085_bf4be5c139_b.jpg "On the track to Beinn Fhionnlaidh")](https://www.flickr.com/photos/black_friction/4719786085/)
 
 
 
-[![Beinn Fhionnlaidh](https://live.staticflickr.com/4032/4720440068_ce44291ee5_b.jpg "Beinn Fhionnlaidh")](https://www.flickr.com/photos/black_friction/4720440068/))
+[![Beinn Fhionnlaidh](https://live.staticflickr.com/4032/4720440068_ce44291ee5_b.jpg "Beinn Fhionnlaidh")](https://www.flickr.com/photos/black_friction/4720440068/)
 
 
 
@@ -150,15 +150,15 @@ I reached the summit cairn and again the views were glorious. The dark surface o
 
 
 
-[![Loch Mullardoch](https://live.staticflickr.com/4053/4719802063_fa241d264f_b.jpg "Loch Mullardoch")](https://www.flickr.com/photos/black_friction/4719802063/))
+[![Loch Mullardoch](https://live.staticflickr.com/4053/4719802063_fa241d264f_b.jpg "Loch Mullardoch")](https://www.flickr.com/photos/black_friction/4719802063/)
 
 
 
-[![Towards Skye](https://live.staticflickr.com/4060/4720467388_46406a5f99_b.jpg "Towards Skye")](https://www.flickr.com/photos/black_friction/4720467388/))
+[![Towards Skye](https://live.staticflickr.com/4060/4720467388_46406a5f99_b.jpg "Towards Skye")](https://www.flickr.com/photos/black_friction/4720467388/)
 
 
 
-[![Gleann a' Choinich and Sgurr nan Ceathreamhnan](https://live.staticflickr.com/4033/4719805521_774cc76ca4_b.jpg "Gleann a' Choinich and Sgurr nan Ceathreamhnan")](https://www.flickr.com/photos/black_friction/4719805521/))
+[![Gleann a' Choinich and Sgurr nan Ceathreamhnan](https://live.staticflickr.com/4033/4719805521_774cc76ca4_b.jpg "Gleann a' Choinich and Sgurr nan Ceathreamhnan")](https://www.flickr.com/photos/black_friction/4719805521/)
 
 
 
@@ -166,11 +166,11 @@ The conditions were perfect up there and on the sheltered side and I lay back su
 
 
 
-[![Carn Eige above Coire Lochan](https://live.staticflickr.com/4020/4719809459_fc8da3db60_b.jpg "Carn Eige above Coire Lochan")](https://www.flickr.com/photos/black_friction/4719809459/))
+[![Carn Eige above Coire Lochan](https://live.staticflickr.com/4020/4719809459_fc8da3db60_b.jpg "Carn Eige above Coire Lochan")](https://www.flickr.com/photos/black_friction/4719809459/)
 
 
 
-[![Summit of Beinn Fionnlaidh](https://live.staticflickr.com/4018/4719814145_4750a7f86b_b.jpg "Summit of Beinn Fionnlaidh")](https://www.flickr.com/photos/black_friction/4719814145/))
+[![Summit of Beinn Fionnlaidh](https://live.staticflickr.com/4018/4719814145_4750a7f86b_b.jpg "Summit of Beinn Fionnlaidh")](https://www.flickr.com/photos/black_friction/4719814145/)
 
 
 
@@ -178,15 +178,15 @@ From Beinn Fionndlaidh I traced my steps back to the bealach and then ascended t
 
 
 
-[![North ridge of Carn Eige](https://live.staticflickr.com/4017/4720478340_f269337d82_b.jpg "North ridge of Carn Eige")](https://www.flickr.com/photos/black_friction/4720478340/))
+[![North ridge of Carn Eige](https://live.staticflickr.com/4017/4720478340_f269337d82_b.jpg "North ridge of Carn Eige")](https://www.flickr.com/photos/black_friction/4720478340/)
 
 
 
-[![Beinn Fhionnlaidh](https://live.staticflickr.com/1111/4723210063_f629ae4e79_b.jpg "Beinn Fhionnlaidh")](https://www.flickr.com/photos/black_friction/4723210063/))
+[![Beinn Fhionnlaidh](https://live.staticflickr.com/1111/4723210063_f629ae4e79_b.jpg "Beinn Fhionnlaidh")](https://www.flickr.com/photos/black_friction/4723210063/)
 
 
 
-[![Grey Corries and Ben Nevis](https://live.staticflickr.com/1250/4723879124_3540664bf3_b.jpg "Grey Corries and Ben Nevis")](https://www.flickr.com/photos/black_friction/4723879124/))
+[![Grey Corries and Ben Nevis](https://live.staticflickr.com/1250/4723879124_3540664bf3_b.jpg "Grey Corries and Ben Nevis")](https://www.flickr.com/photos/black_friction/4723879124/)
 
 
 

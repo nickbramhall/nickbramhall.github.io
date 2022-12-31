@@ -24,15 +24,15 @@ The bitter cold got everyone moving quickly and we were soon labouring our way t
 
 
 
-[![Summit of the Buck](https://live.staticflickr.com/4085/5175607203_febc00ab52_b.jpg "Summit of the Buck")](https://www.flickr.com/photos/black_friction/5175607203/))
+[![Summit of the Buck](https://live.staticflickr.com/4085/5175607203_febc00ab52_b.jpg "Summit of the Buck")](https://www.flickr.com/photos/black_friction/5175607203/)
 
 
 
-[![Climbing the Buck](https://live.staticflickr.com/4006/5175596707_360ccbe4b8_b.jpg "Climbing the Buck")](https://www.flickr.com/photos/black_friction/5175596707/))
+[![Climbing the Buck](https://live.staticflickr.com/4006/5175596707_360ccbe4b8_b.jpg "Climbing the Buck")](https://www.flickr.com/photos/black_friction/5175596707/)
 
 
 
-[![Aberdeenshire with cloud](https://live.staticflickr.com/4086/5176245200_29e8d66d54_b.jpg "Aberdeenshire with cloud")](https://www.flickr.com/photos/black_friction/5176245200/))
+[![Aberdeenshire with cloud](https://live.staticflickr.com/4086/5176245200_29e8d66d54_b.jpg "Aberdeenshire with cloud")](https://www.flickr.com/photos/black_friction/5176245200/)
 
 
 
@@ -40,15 +40,15 @@ The snow-swept rocks of the summit were scrambled over and up to reach the trig 
 
 
 
-[![Stone carvings on the Buck of Cabrach](https://live.staticflickr.com/4149/5175651805_4c31ebfe8d_b.jpg "Stone carvings on the Buck of Cabrach")](https://www.flickr.com/photos/black_friction/5175651805/))
+[![Stone carvings on the Buck of Cabrach](https://live.staticflickr.com/4149/5175651805_4c31ebfe8d_b.jpg "Stone carvings on the Buck of Cabrach")](https://www.flickr.com/photos/black_friction/5175651805/)
 
 
 
-[![Aberdeenshire](https://live.staticflickr.com/4125/5175646025_f0713409cb_b.jpg "Aberdeenshire")](https://www.flickr.com/photos/black_friction/5175646025/))
+[![Aberdeenshire](https://live.staticflickr.com/4125/5175646025_f0713409cb_b.jpg "Aberdeenshire")](https://www.flickr.com/photos/black_friction/5175646025/)
 
 
 
-[![Chasing the sunlight](https://live.staticflickr.com/4111/5175664593_11b3fd3d8f_b.jpg "Chasing the sunlight")](https://www.flickr.com/photos/black_friction/5175664593/))
+[![Chasing the sunlight](https://live.staticflickr.com/4111/5175664593_11b3fd3d8f_b.jpg "Chasing the sunlight")](https://www.flickr.com/photos/black_friction/5175664593/)
 
 
 
@@ -56,15 +56,15 @@ On the sheltered western side we paused for our first break of the day where hot
 
 
 
-[![Summit of the Buck](https://live.staticflickr.com/4151/5175682785_6245341bb2_b.jpg "Summit of the Buck")](https://www.flickr.com/photos/black_friction/5175682785/))
+[![Summit of the Buck](https://live.staticflickr.com/4151/5175682785_6245341bb2_b.jpg "Summit of the Buck")](https://www.flickr.com/photos/black_friction/5175682785/)
 
 
 
-[![Winter sky](https://live.staticflickr.com/4128/5176280750_d143f8576c_b.jpg "Winter sky")](https://www.flickr.com/photos/black_friction/5176280750/))
+[![Winter sky](https://live.staticflickr.com/4128/5176280750_d143f8576c_b.jpg "Winter sky")](https://www.flickr.com/photos/black_friction/5176280750/)
 
 
 
-[![Aberdeenshire from the Buck](https://live.staticflickr.com/4127/5176311918_7f0dcf5ca4_b.jpg "Aberdeenshire from the Buck")](https://www.flickr.com/photos/black_friction/5176311918/))
+[![Aberdeenshire from the Buck](https://live.staticflickr.com/4127/5176311918_7f0dcf5ca4_b.jpg "Aberdeenshire from the Buck")](https://www.flickr.com/photos/black_friction/5176311918/)
 
 
 
@@ -72,15 +72,15 @@ For the first part, the descent to Kebbuck Knowe we had views with blue skies ab
 
 
 
-[![Heading south from the Buck](https://live.staticflickr.com/4085/5176326740_c223cf5087_b.jpg "Heading south from the Buck")](https://www.flickr.com/photos/black_friction/5176326740/))
+[![Heading south from the Buck](https://live.staticflickr.com/4085/5176326740_c223cf5087_b.jpg "Heading south from the Buck")](https://www.flickr.com/photos/black_friction/5176326740/)
 
 
 
-[![Marching across the wild hills](https://live.staticflickr.com/4092/5175728817_5888368911_b.jpg "Marching across the wild hills")](https://www.flickr.com/photos/black_friction/5175728817/))
+[![Marching across the wild hills](https://live.staticflickr.com/4092/5175728817_5888368911_b.jpg "Marching across the wild hills")](https://www.flickr.com/photos/black_friction/5175728817/)
 
 
 
-[![The Buck of Cabrach](https://live.staticflickr.com/4106/5175777033_0edeb4f859_b.jpg "The Buck of Cabrach")](https://www.flickr.com/photos/black_friction/5175777033/))
+[![The Buck of Cabrach](https://live.staticflickr.com/4106/5175777033_0edeb4f859_b.jpg "The Buck of Cabrach")](https://www.flickr.com/photos/black_friction/5175777033/)
 
 
 
@@ -88,15 +88,15 @@ At 11am we paused close to the summit of Mount Midden to observe two minutes sil
 
 
 
-[![Misty morning](https://live.staticflickr.com/4108/5175790803_788674c5e4_b.jpg "Misty morning")](https://www.flickr.com/photos/black_friction/5175790803/))
+[![Misty morning](https://live.staticflickr.com/4108/5175790803_788674c5e4_b.jpg "Misty morning")](https://www.flickr.com/photos/black_friction/5175790803/)
 
 
 
-[![Looking back to the Buck](https://live.staticflickr.com/4132/5176401310_51a060aabc_b.jpg "Looking back to the Buck")](https://www.flickr.com/photos/black_friction/5176401310/))
+[![Looking back to the Buck](https://live.staticflickr.com/4132/5176401310_51a060aabc_b.jpg "Looking back to the Buck")](https://www.flickr.com/photos/black_friction/5176401310/)
 
 
 
-[![A vapour rises](https://live.staticflickr.com/4083/5176407842_1ec610d80e_b.jpg "A vapour rises")](https://www.flickr.com/photos/black_friction/5176407842/))
+[![A vapour rises](https://live.staticflickr.com/4083/5176407842_1ec610d80e_b.jpg "A vapour rises")](https://www.flickr.com/photos/black_friction/5176407842/)
 
 
 
@@ -104,7 +104,7 @@ We continued on, heading now almost due south along the boundary line, circumven
 
 
 
-[![The track south](https://live.staticflickr.com/4149/5176413226_075ce8cfa8_b.jpg "The track south")](https://www.flickr.com/photos/black_friction/5176413226/))
+[![The track south](https://live.staticflickr.com/4149/5176413226_075ce8cfa8_b.jpg "The track south")](https://www.flickr.com/photos/black_friction/5176413226/)
 
 
 
@@ -112,11 +112,11 @@ This track we now followed all the way as it dropped us below the snowline and f
 
 
 
-[![The track above Glenbuchat](https://live.staticflickr.com/4088/5176418950_4ae419a33c_b.jpg "The track above Glenbuchat")](https://www.flickr.com/photos/black_friction/5176418950/))
+[![The track above Glenbuchat](https://live.staticflickr.com/4088/5176418950_4ae419a33c_b.jpg "The track above Glenbuchat")](https://www.flickr.com/photos/black_friction/5176418950/)
 
 
 
-[![Snowy hills above Strathdon](https://live.staticflickr.com/4154/5175825909_14fe0f64c5_b.jpg "Snowy hills above Strathdon")](https://www.flickr.com/photos/black_friction/5175825909/))
+[![Snowy hills above Strathdon](https://live.staticflickr.com/4154/5175825909_14fe0f64c5_b.jpg "Snowy hills above Strathdon")](https://www.flickr.com/photos/black_friction/5175825909/)
 
 
 

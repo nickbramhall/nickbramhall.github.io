@@ -27,7 +27,7 @@ Leaving Aberdeen at 7am, I was under grey skies that darkened and turned to torr
 
 
 
-[![The Callater Burn](https://live.staticflickr.com/5219/5482981630_691522b1e9_b.jpg "The Callater Burn")](https://www.flickr.com/photos/black_friction/5482981630/))
+[![The Callater Burn](https://live.staticflickr.com/5219/5482981630_691522b1e9_b.jpg "The Callater Burn")](https://www.flickr.com/photos/black_friction/5482981630/)
 
 
 
@@ -35,11 +35,11 @@ I followed the usual route along the main vehicle track which runs beside the Ca
 
 
 
-[![Track through Glen Callater](https://live.staticflickr.com/5259/5482392363_b47f91375d_b.jpg "Track through Glen Callater")](https://www.flickr.com/photos/black_friction/5482392363/))
+[![Track through Glen Callater](https://live.staticflickr.com/5259/5482392363_b47f91375d_b.jpg "Track through Glen Callater")](https://www.flickr.com/photos/black_friction/5482392363/)
 
 
 
-[![Falls of Callater Burn](https://live.staticflickr.com/5020/5482397133_70cc018d0c_b.jpg "Falls of Callater Burn")](https://www.flickr.com/photos/black_friction/5482397133/))
+[![Falls of Callater Burn](https://live.staticflickr.com/5020/5482397133_70cc018d0c_b.jpg "Falls of Callater Burn")](https://www.flickr.com/photos/black_friction/5482397133/)
 
 
 
@@ -47,15 +47,15 @@ It's a decent leg-stretch through Glen Callater and I was warming up nicely as b
 
 
 
-[![Carn an Tuirc above Glen Callater](https://live.staticflickr.com/5095/5479985249_14317a7ca0_b.jpg "Carn an Tuirc above Glen Callater")](https://www.flickr.com/photos/black_friction/5479985249/))
+[![Carn an Tuirc above Glen Callater](https://live.staticflickr.com/5095/5479985249_14317a7ca0_b.jpg "Carn an Tuirc above Glen Callater")](https://www.flickr.com/photos/black_friction/5479985249/)
 
 
 
-[![Swirls in frozen Loch Callater](https://live.staticflickr.com/5178/5483016676_6f10d4ac6c_b.jpg "Swirls in frozen Loch Callater")](https://www.flickr.com/photos/black_friction/5483016676/))
+[![Swirls in frozen Loch Callater](https://live.staticflickr.com/5178/5483016676_6f10d4ac6c_b.jpg "Swirls in frozen Loch Callater")](https://www.flickr.com/photos/black_friction/5483016676/)
 
 
 
-[![Creag nan Gabhar above Loch Callater](https://live.staticflickr.com/5016/5482438643_9d582dfb37_b.jpg "Creag nan Gabhar above Loch Callater")](https://www.flickr.com/photos/black_friction/5482438643/))
+[![Creag nan Gabhar above Loch Callater](https://live.staticflickr.com/5016/5482438643_9d582dfb37_b.jpg "Creag nan Gabhar above Loch Callater")](https://www.flickr.com/photos/black_friction/5482438643/)
 
 
 
@@ -63,15 +63,15 @@ Turning the corner, I followed the track across several short sections of softis
 
 
 
-[![The bealach above Loch Callater](https://live.staticflickr.com/5058/5482449821_ee1ca87773_b.jpg "The bealach above Loch Callater")](https://www.flickr.com/photos/black_friction/5482449821/))
+[![The bealach above Loch Callater](https://live.staticflickr.com/5058/5482449821_ee1ca87773_b.jpg "The bealach above Loch Callater")](https://www.flickr.com/photos/black_friction/5482449821/)
 
 
 
-[![Carn an t-Sagairt Mor](https://live.staticflickr.com/5014/5482442973_3e6c63d07e_b.jpg "Carn an t-Sagairt Mor")](https://www.flickr.com/photos/black_friction/5482442973/))
+[![Carn an t-Sagairt Mor](https://live.staticflickr.com/5014/5482442973_3e6c63d07e_b.jpg "Carn an t-Sagairt Mor")](https://www.flickr.com/photos/black_friction/5482442973/)
 
 
 
-[![End of the track; time to put the crampons on](https://live.staticflickr.com/5215/5483054442_ee321d7750_b.jpg "End of the track; time to put the crampons on")](https://www.flickr.com/photos/black_friction/5483054442/))
+[![End of the track; time to put the crampons on](https://live.staticflickr.com/5215/5483054442_ee321d7750_b.jpg "End of the track; time to put the crampons on")](https://www.flickr.com/photos/black_friction/5483054442/)
 
 
 
@@ -79,11 +79,11 @@ This made the going much easier and luckily I only had to pick my way carefully 
 
 
 
-[![The Glenshee Hills](https://live.staticflickr.com/5057/5483058634_ac2837762a_b.jpg "The Glenshee Hills")](https://www.flickr.com/photos/black_friction/5483058634/))
+[![The Glenshee Hills](https://live.staticflickr.com/5057/5483058634_ac2837762a_b.jpg "The Glenshee Hills")](https://www.flickr.com/photos/black_friction/5483058634/)
 
 
 
-[![Climbing Carn an t-Sagairt Mor](https://live.staticflickr.com/5219/5479987419_e3bbd92846_b.jpg "Climbing Carn an t-Sagairt Mor")](https://www.flickr.com/photos/black_friction/5479987419/))
+[![Climbing Carn an t-Sagairt Mor](https://live.staticflickr.com/5219/5479987419_e3bbd92846_b.jpg "Climbing Carn an t-Sagairt Mor")](https://www.flickr.com/photos/black_friction/5479987419/)
 
 
 
@@ -91,7 +91,7 @@ Eventually the snow thinned and then completely disappeared as the slope eased o
 
 
 
-[![The Cairngorm Plateau](https://live.staticflickr.com/5255/5482472799_93eedc24dc_b.jpg "The Cairngorm Plateau")](https://www.flickr.com/photos/black_friction/5482472799/))
+[![The Cairngorm Plateau](https://live.staticflickr.com/5255/5482472799_93eedc24dc_b.jpg "The Cairngorm Plateau")](https://www.flickr.com/photos/black_friction/5482472799/)
 
 
 
@@ -99,19 +99,19 @@ After this pause I now continued on my way, following a rough bearing south down
 
 
 
-[![A brief glimpse of the Dubh Loch](https://live.staticflickr.com/5100/5482477883_440199587c_b.jpg "A brief glimpse of the Dubh Loch")](https://www.flickr.com/photos/black_friction/5482477883/))
+[![A brief glimpse of the Dubh Loch](https://live.staticflickr.com/5100/5482477883_440199587c_b.jpg "A brief glimpse of the Dubh Loch")](https://www.flickr.com/photos/black_friction/5482477883/)
 
 
 
-[![Looking towards the Glas Tulaichean group](https://live.staticflickr.com/5259/5483083012_25b9c964b9_b.jpg "Looking towards the Glas Tulaichean group")](https://www.flickr.com/photos/black_friction/5483083012/))
+[![Looking towards the Glas Tulaichean group](https://live.staticflickr.com/5259/5483083012_25b9c964b9_b.jpg "Looking towards the Glas Tulaichean group")](https://www.flickr.com/photos/black_friction/5483083012/)
 
 
 
-[![Carn a' Choire Bhoidheach](https://live.staticflickr.com/5013/5482493143_faa6aed751_b.jpg "Carn a' Choire Bhoidheach")](https://www.flickr.com/photos/black_friction/5482493143/))
+[![Carn a' Choire Bhoidheach](https://live.staticflickr.com/5013/5482493143_faa6aed751_b.jpg "Carn a' Choire Bhoidheach")](https://www.flickr.com/photos/black_friction/5482493143/)
 
 
 
-[![The Eagle Rocks](https://live.staticflickr.com/5172/5482502735_d6df8ce40c_b.jpg "The Eagle Rocks")](https://www.flickr.com/photos/black_friction/5482502735/))
+[![The Eagle Rocks](https://live.staticflickr.com/5172/5482502735_d6df8ce40c_b.jpg "The Eagle Rocks")](https://www.flickr.com/photos/black_friction/5482502735/)
 
 
 
@@ -119,19 +119,19 @@ I made my steady way across the gently rising slope, my destination now clear in
 
 
 
-[![Towards Cairn Bannoch](https://live.staticflickr.com/5214/5483100996_2d98e493d3_b.jpg "Towards Cairn Bannoch")](https://www.flickr.com/photos/black_friction/5483100996/))
+[![Towards Cairn Bannoch](https://live.staticflickr.com/5214/5483100996_2d98e493d3_b.jpg "Towards Cairn Bannoch")](https://www.flickr.com/photos/black_friction/5483100996/)
 
 
 
-[![Carn an t-Sagairt Mor and Beag](https://live.staticflickr.com/5012/5482511423_18d539c921_b.jpg "Carn an t-Sagairt Mor and Beag")](https://www.flickr.com/photos/black_friction/5482511423/))
+[![Carn an t-Sagairt Mor and Beag](https://live.staticflickr.com/5012/5482511423_18d539c921_b.jpg "Carn an t-Sagairt Mor and Beag")](https://www.flickr.com/photos/black_friction/5482511423/)
 
 
 
-[![Where the sky begins](https://live.staticflickr.com/5051/5482516687_3c8f1d23ed_b.jpg "Where the sky begins")](https://www.flickr.com/photos/black_friction/5482516687/))
+[![Where the sky begins](https://live.staticflickr.com/5051/5482516687_3c8f1d23ed_b.jpg "Where the sky begins")](https://www.flickr.com/photos/black_friction/5482516687/)
 
 
 
-[![The White Mounth under Blue Skies](https://live.staticflickr.com/5136/5483118102_da494b074f_b.jpg "The White Mounth under Blue Skies")](https://www.flickr.com/photos/black_friction/5483118102/))
+[![The White Mounth under Blue Skies](https://live.staticflickr.com/5136/5483118102_da494b074f_b.jpg "The White Mounth under Blue Skies")](https://www.flickr.com/photos/black_friction/5483118102/)
 
 
 
@@ -139,19 +139,19 @@ Eventually I came out onto the broad plateau that links Cairn Bannoch to Faferni
 
 
 
-[![Summit of Cairn Bannoch](https://live.staticflickr.com/5139/5482538413_91e8d1db8f_b.jpg "Summit of Cairn Bannoch")](https://www.flickr.com/photos/black_friction/5482538413/))
+[![Summit of Cairn Bannoch](https://live.staticflickr.com/5139/5482538413_91e8d1db8f_b.jpg "Summit of Cairn Bannoch")](https://www.flickr.com/photos/black_friction/5482538413/)
 
 
 
-[![Tom Buidhe and Tolmount](https://live.staticflickr.com/5015/5482531729_19f5e57a1a_b.jpg "Tom Buidhe and Tolmount")](https://www.flickr.com/photos/black_friction/5482531729/))
+[![Tom Buidhe and Tolmount](https://live.staticflickr.com/5015/5482531729_19f5e57a1a_b.jpg "Tom Buidhe and Tolmount")](https://www.flickr.com/photos/black_friction/5482531729/)
 
 
 
-[![Lochnagar and Eagle Rocks](https://live.staticflickr.com/5091/5482548695_e828769d6c_b.jpg "Lochnagar and Eagle Rocks")](https://www.flickr.com/photos/black_friction/5482548695/))
+[![Lochnagar and Eagle Rocks](https://live.staticflickr.com/5091/5482548695_e828769d6c_b.jpg "Lochnagar and Eagle Rocks")](https://www.flickr.com/photos/black_friction/5482548695/)
 
 
 
-[![Summit of Cairn Bannoch](https://live.staticflickr.com/5300/5482582183_4fd47a4a69_b.jpg "Summit of Cairn Bannoch")](https://www.flickr.com/photos/black_friction/5482582183/))
+[![Summit of Cairn Bannoch](https://live.staticflickr.com/5300/5482582183_4fd47a4a69_b.jpg "Summit of Cairn Bannoch")](https://www.flickr.com/photos/black_friction/5482582183/)
 
 
 
@@ -159,15 +159,15 @@ After some food, I decided to cut short my original route which had included the
 
 
 
-[![Towards the Angus Hills](https://live.staticflickr.com/5174/5487045840_083529bedd_b.jpg "Towards the Angus Hills")](https://www.flickr.com/photos/black_friction/5487045840/))
+[![Towards the Angus Hills](https://live.staticflickr.com/5174/5487045840_083529bedd_b.jpg "Towards the Angus Hills")](https://www.flickr.com/photos/black_friction/5487045840/)
 
 
 
-[![Across Fafernie](https://live.staticflickr.com/5014/5486458045_73d66ba716_b.jpg "Across Fafernie")](https://www.flickr.com/photos/black_friction/5486458045/))
+[![Across Fafernie](https://live.staticflickr.com/5014/5486458045_73d66ba716_b.jpg "Across Fafernie")](https://www.flickr.com/photos/black_friction/5486458045/)
 
 
 
-[![Tom Budhe, Tolmount and Cairn of Claise](https://live.staticflickr.com/5013/5487056948_23d992e133_b.jpg "Tom Budhe, Tolmount and Cairn of Claise")](https://www.flickr.com/photos/black_friction/5487056948/))
+[![Tom Budhe, Tolmount and Cairn of Claise](https://live.staticflickr.com/5013/5487056948_23d992e133_b.jpg "Tom Budhe, Tolmount and Cairn of Claise")](https://www.flickr.com/photos/black_friction/5487056948/)
 
 
 
@@ -175,19 +175,19 @@ I had a brief stop here to look back across the Cairngorm plateau where all the 
 
 
 
-[![Summit of Fafernie](https://live.staticflickr.com/5016/5486468533_ef317829a4_b.jpg "Summit of Fafernie")](https://www.flickr.com/photos/black_friction/5486468533/))
+[![Summit of Fafernie](https://live.staticflickr.com/5016/5486468533_ef317829a4_b.jpg "Summit of Fafernie")](https://www.flickr.com/photos/black_friction/5486468533/)
 
 
 
-[![Tolmount and Cairn of Claise](https://live.staticflickr.com/5252/5487069520_7a6fd424c6_b.jpg "Tolmount and Cairn of Claise")](https://www.flickr.com/photos/black_friction/5487069520/))
+[![Tolmount and Cairn of Claise](https://live.staticflickr.com/5252/5487069520_7a6fd424c6_b.jpg "Tolmount and Cairn of Claise")](https://www.flickr.com/photos/black_friction/5487069520/)
 
 
 
-[![Nick descending towards Tolmount](https://live.staticflickr.com/5019/5486478855_e1e9b38fca_b.jpg "Nick descending towards Tolmount")](https://www.flickr.com/photos/black_friction/5486478855/))
+[![Nick descending towards Tolmount](https://live.staticflickr.com/5019/5486478855_e1e9b38fca_b.jpg "Nick descending towards Tolmount")](https://www.flickr.com/photos/black_friction/5486478855/)
 
 
 
-[![Looking back towards Fafernie](https://live.staticflickr.com/5218/5486482097_32645c091e_b.jpg "Looking back towards Fafernie")](https://www.flickr.com/photos/black_friction/5486482097/))
+[![Looking back towards Fafernie](https://live.staticflickr.com/5218/5486482097_32645c091e_b.jpg "Looking back towards Fafernie")](https://www.flickr.com/photos/black_friction/5486482097/)
 
 
 
@@ -195,19 +195,19 @@ Again I was in a quiet world, with no sign of any other hikers anywhere. The sun
 
 
 
-[![Skies over Tolmount](https://live.staticflickr.com/5132/5486485003_a292ddc63d_b.jpg "Skies over Tolmount")](https://www.flickr.com/photos/black_friction/5486485003/))
+[![Skies over Tolmount](https://live.staticflickr.com/5132/5486485003_a292ddc63d_b.jpg "Skies over Tolmount")](https://www.flickr.com/photos/black_friction/5486485003/)
 
 
 
-[![Looking down Glen Callater](https://live.staticflickr.com/5294/5486489517_15d58bce5d_b.jpg "Looking down Glen Callater")](https://www.flickr.com/photos/black_friction/5486489517/))
+[![Looking down Glen Callater](https://live.staticflickr.com/5294/5486489517_15d58bce5d_b.jpg "Looking down Glen Callater")](https://www.flickr.com/photos/black_friction/5486489517/)
 
 
 
-[![Glen Callater](https://live.staticflickr.com/5173/5487094624_c778666057_b.jpg "Glen Callater")](https://www.flickr.com/photos/black_friction/5487094624/))
+[![Glen Callater](https://live.staticflickr.com/5173/5487094624_c778666057_b.jpg "Glen Callater")](https://www.flickr.com/photos/black_friction/5487094624/)
 
 
 
-[![Summit of Tolmount](https://live.staticflickr.com/5178/5487111546_ec9233f673_b.jpg "Summit of Tolmount")](https://www.flickr.com/photos/black_friction/5487111546/))
+[![Summit of Tolmount](https://live.staticflickr.com/5178/5487111546_ec9233f673_b.jpg "Summit of Tolmount")](https://www.flickr.com/photos/black_friction/5487111546/)
 
 
 
@@ -215,11 +215,11 @@ After this break and a chance to remove my crampons, I made my way down off Tolm
 
 
 
-[![Ski Tourers](https://live.staticflickr.com/5291/5486548823_cd7a01a804_b.jpg "Ski Tourers")](https://www.flickr.com/photos/black_friction/5486548823/))
+[![Ski Tourers](https://live.staticflickr.com/5291/5486548823_cd7a01a804_b.jpg "Ski Tourers")](https://www.flickr.com/photos/black_friction/5486548823/)
 
 
 
-[![Descent from Tolmount](https://live.staticflickr.com/5299/5486552211_62fd6c40a6_b.jpg "Descent from Tolmount")](https://www.flickr.com/photos/black_friction/5486552211/))
+[![Descent from Tolmount](https://live.staticflickr.com/5299/5486552211_62fd6c40a6_b.jpg "Descent from Tolmount")](https://www.flickr.com/photos/black_friction/5486552211/)
 
 
 
@@ -227,15 +227,15 @@ I remember from my walk across these hills in May 2008 that this area is incredi
 
 
 
-[![Tom Buidhe from Tolmount](https://live.staticflickr.com/5171/5487115776_08b1553571_b.jpg "Tom Buidhe from Tolmount")](https://www.flickr.com/photos/black_friction/5487115776/))
+[![Tom Buidhe from Tolmount](https://live.staticflickr.com/5171/5487115776_08b1553571_b.jpg "Tom Buidhe from Tolmount")](https://www.flickr.com/photos/black_friction/5487115776/)
 
 
 
-[![Summit cairn of Tolmount](https://live.staticflickr.com/5097/5486526707_6d484ed3d7_b.jpg "Summit cairn of Tolmount")](https://www.flickr.com/photos/black_friction/5486526707/))
+[![Summit cairn of Tolmount](https://live.staticflickr.com/5097/5486526707_6d484ed3d7_b.jpg "Summit cairn of Tolmount")](https://www.flickr.com/photos/black_friction/5486526707/)
 
 
 
-[![Dreish above Glen Doll](https://live.staticflickr.com/5176/5486541477_4a7e2886cb_b.jpg "Dreish above Glen Doll")](https://www.flickr.com/photos/black_friction/5486541477/)) 
+[![Dreish above Glen Doll](https://live.staticflickr.com/5176/5486541477_4a7e2886cb_b.jpg "Dreish above Glen Doll")](https://www.flickr.com/photos/black_friction/5486541477/) 
 
 
 
@@ -243,15 +243,15 @@ I joined the line of the old wall, almost buried by the snow, and follow it up t
 
 
 
-[![Summit wall on Cairn of Claise](https://live.staticflickr.com/5291/5486560713_8c9e56da0a_b.jpg "Summit wall on Cairn of Claise")](https://www.flickr.com/photos/black_friction/5486560713/))
+[![Summit wall on Cairn of Claise](https://live.staticflickr.com/5291/5486560713_8c9e56da0a_b.jpg "Summit wall on Cairn of Claise")](https://www.flickr.com/photos/black_friction/5486560713/)
 
 
 
-[![The summit of Cairn of Claise](https://live.staticflickr.com/5134/5487159240_129e57b6ca_b.jpg "The summit of Cairn of Claise")](https://www.flickr.com/photos/black_friction/5487159240/))
+[![The summit of Cairn of Claise](https://live.staticflickr.com/5134/5487159240_129e57b6ca_b.jpg "The summit of Cairn of Claise")](https://www.flickr.com/photos/black_friction/5487159240/)
 
 
 
-[![Towards Perthshire from Cairn of Claise](https://live.staticflickr.com/5012/5486565885_1da824ed9c_b.jpg "Towards Perthshire from Cairn of Claise")](https://www.flickr.com/photos/black_friction/5486565885/))
+[![Towards Perthshire from Cairn of Claise](https://live.staticflickr.com/5012/5486565885_1da824ed9c_b.jpg "Towards Perthshire from Cairn of Claise")](https://www.flickr.com/photos/black_friction/5486565885/)
 
 
 
@@ -259,11 +259,11 @@ I stayed for some time, enjoying the views across to Glas Maol, and chatting wit
 
 
 
-[![Leaving Cairn of Claise](https://live.staticflickr.com/5252/5488443134_ec753b7dbd_b.jpg "Leaving Cairn of Claise")](https://www.flickr.com/photos/black_friction/5488443134/))
+[![Leaving Cairn of Claise](https://live.staticflickr.com/5252/5488443134_ec753b7dbd_b.jpg "Leaving Cairn of Claise")](https://www.flickr.com/photos/black_friction/5488443134/)
 
 
 
-[![Glas Maol](https://live.staticflickr.com/5100/5487848607_e617cfeb9c_b.jpg "Glas Maol")](https://www.flickr.com/photos/black_friction/5487848607/))
+[![Glas Maol](https://live.staticflickr.com/5100/5487848607_e617cfeb9c_b.jpg "Glas Maol")](https://www.flickr.com/photos/black_friction/5487848607/)
 
 
 
@@ -271,19 +271,19 @@ I had already watched as a heavy snow shower developed over the Cairngorms. This
 
 
 
-[![Glas Maol](https://live.staticflickr.com/5017/5487278822_0becd6a30a_b.jpg "Glas Maol")](https://www.flickr.com/photos/black_friction/5487278822/))
+[![Glas Maol](https://live.staticflickr.com/5017/5487278822_0becd6a30a_b.jpg "Glas Maol")](https://www.flickr.com/photos/black_friction/5487278822/)
 
 
 
-[![Cairn of Claise](https://live.staticflickr.com/5011/5487274744_27780a3093_b.jpg "Cairn of Claise")](https://www.flickr.com/photos/black_friction/5487274744/))
+[![Cairn of Claise](https://live.staticflickr.com/5011/5487274744_27780a3093_b.jpg "Cairn of Claise")](https://www.flickr.com/photos/black_friction/5487274744/)
 
 
 
-[![Glenshee and Glas Tulaichean hills](https://live.staticflickr.com/5214/5486690333_b6399600e8_b.jpg "Glenshee and Glas Tulaichean hills")](https://www.flickr.com/photos/black_friction/5486690333/))
+[![Glenshee and Glas Tulaichean hills](https://live.staticflickr.com/5214/5486690333_b6399600e8_b.jpg "Glenshee and Glas Tulaichean hills")](https://www.flickr.com/photos/black_friction/5486690333/)
 
 
 
-[![Dark skies over Glenshee](https://live.staticflickr.com/5258/5487288724_b05f4db7e2_b.jpg "Dark skies over Glenshee")](https://www.flickr.com/photos/black_friction/5487288724/))
+[![Dark skies over Glenshee](https://live.staticflickr.com/5258/5487288724_b05f4db7e2_b.jpg "Dark skies over Glenshee")](https://www.flickr.com/photos/black_friction/5487288724/)
 
 
 
@@ -291,11 +291,11 @@ After a brief brew and a bite to eat on Carn an Tuirc I now had to make my way t
 
 
 
-[![Glenshee Hills](https://live.staticflickr.com/5258/5486695495_02e443246d_b.jpg "Glenshee Hills")](https://www.flickr.com/photos/black_friction/5486695495/))
+[![Glenshee Hills](https://live.staticflickr.com/5258/5486695495_02e443246d_b.jpg "Glenshee Hills")](https://www.flickr.com/photos/black_friction/5486695495/)
 
 
 
-[![North after the sky cleared](https://live.staticflickr.com/5098/5487295188_c82177bf29_b.jpg "North after the sky cleared")](https://www.flickr.com/photos/black_friction/5487295188/))
+[![North after the sky cleared](https://live.staticflickr.com/5098/5487295188_c82177bf29_b.jpg "North after the sky cleared")](https://www.flickr.com/photos/black_friction/5487295188/)
 
 
 
@@ -303,19 +303,19 @@ I made my way up onto Carn Dubh and as I did so, again the clouds passed overhea
 
 
 
-[![Carn an Tuirc from Carn Dubh](https://live.staticflickr.com/5059/5487322594_87b1ea2839_b.jpg "Carn an Tuirc from Carn Dubh")](https://www.flickr.com/photos/black_friction/5487322594/))
+[![Carn an Tuirc from Carn Dubh](https://live.staticflickr.com/5059/5487322594_87b1ea2839_b.jpg "Carn an Tuirc from Carn Dubh")](https://www.flickr.com/photos/black_friction/5487322594/)
 
 
 
-[![Glas Maol weathers a shower](https://live.staticflickr.com/5059/5486730951_52d239718d_b.jpg "Glas Maol weathers a shower")](https://www.flickr.com/photos/black_friction/5486730951/))
+[![Glas Maol weathers a shower](https://live.staticflickr.com/5059/5486730951_52d239718d_b.jpg "Glas Maol weathers a shower")](https://www.flickr.com/photos/black_friction/5486730951/)
 
 
 
-[![Glenshee Hills](https://live.staticflickr.com/5212/5487331150_cba7f0beb8_b.jpg "Glenshee Hills")](https://www.flickr.com/photos/black_friction/5487331150/))
+[![Glenshee Hills](https://live.staticflickr.com/5212/5487331150_cba7f0beb8_b.jpg "Glenshee Hills")](https://www.flickr.com/photos/black_friction/5487331150/)
 
 
 
-[![Summit of Carn Dubh](https://live.staticflickr.com/5013/5487337830_5f8c8abba2_b.jpg "Summit of Carn Dubh")](https://www.flickr.com/photos/black_friction/5487337830/))
+[![Summit of Carn Dubh](https://live.staticflickr.com/5013/5487337830_5f8c8abba2_b.jpg "Summit of Carn Dubh")](https://www.flickr.com/photos/black_friction/5487337830/)
 
 
 
@@ -323,19 +323,19 @@ I now made my way around a broad coire rim before picking up a good vehicle trac
 
 
 
-[![Towards Creag nan Gabhar](https://live.staticflickr.com/5211/5487341660_f088830f4c_b.jpg "Towards Creag nan Gabhar")](https://www.flickr.com/photos/black_friction/5487341660/))
+[![Towards Creag nan Gabhar](https://live.staticflickr.com/5211/5487341660_f088830f4c_b.jpg "Towards Creag nan Gabhar")](https://www.flickr.com/photos/black_friction/5487341660/)
 
 
 
-[![Glas Tulaichean group](https://live.staticflickr.com/5059/5486748859_314e85a31f_b.jpg "Glas Tulaichean group")](https://www.flickr.com/photos/black_friction/5486748859/))
+[![Glas Tulaichean group](https://live.staticflickr.com/5059/5486748859_314e85a31f_b.jpg "Glas Tulaichean group")](https://www.flickr.com/photos/black_friction/5486748859/)
 
 
 
-[![Glas Maol](https://live.staticflickr.com/5252/5486753947_42a3b25267_b.jpg "Glas Maol")](https://www.flickr.com/photos/black_friction/5486753947/))
+[![Glas Maol](https://live.staticflickr.com/5252/5486753947_42a3b25267_b.jpg "Glas Maol")](https://www.flickr.com/photos/black_friction/5486753947/)
 
 
 
-[![Hills above Loch Callater](https://live.staticflickr.com/5016/5487352098_a20e980f1d_b.jpg "Hills above Loch Callater")](https://www.flickr.com/photos/black_friction/5487352098/))
+[![Hills above Loch Callater](https://live.staticflickr.com/5016/5487352098_a20e980f1d_b.jpg "Hills above Loch Callater")](https://www.flickr.com/photos/black_friction/5487352098/)
 
 
 
@@ -343,11 +343,11 @@ I had a brief view of the way ahead, a curving track that climbed the broad sout
 
 
 
-[![Creag nan Gabhar](https://live.staticflickr.com/5015/5486760727_331b7c6c10_b.jpg "Creag nan Gabhar")](https://www.flickr.com/photos/black_friction/5486760727/))
+[![Creag nan Gabhar](https://live.staticflickr.com/5015/5486760727_331b7c6c10_b.jpg "Creag nan Gabhar")](https://www.flickr.com/photos/black_friction/5486760727/)
 
 
 
-[![Summit of Creag nan Gabhar](https://live.staticflickr.com/4134/5486768147_d8af575143_b.jpg "Summit of Creag nan Gabhar")](https://www.flickr.com/photos/black_friction/5486768147/))
+[![Summit of Creag nan Gabhar](https://live.staticflickr.com/4134/5486768147_d8af575143_b.jpg "Summit of Creag nan Gabhar")](https://www.flickr.com/photos/black_friction/5486768147/)
 
 
 
@@ -355,15 +355,15 @@ I stood for some time, facing into an oncoming blizzard that soon had me plaster
 
 
 
-[![The ridge north from Creag nan Gabhar](https://live.staticflickr.com/5174/5486764379_8ab8a3214d_b.jpg "The ridge north from Creag nan Gabhar")](https://www.flickr.com/photos/black_friction/5486764379/))
+[![The ridge north from Creag nan Gabhar](https://live.staticflickr.com/5174/5486764379_8ab8a3214d_b.jpg "The ridge north from Creag nan Gabhar")](https://www.flickr.com/photos/black_friction/5486764379/)
 
 
 
-[![The long and winding track north](https://live.staticflickr.com/4114/5487371290_dcce97f646_b.jpg "The long and winding track north")](https://www.flickr.com/photos/black_friction/5487371290/))
+[![The long and winding track north](https://live.staticflickr.com/4114/5487371290_dcce97f646_b.jpg "The long and winding track north")](https://www.flickr.com/photos/black_friction/5487371290/)
 
 
 
-[![Creag nan Gabhar from the north](https://live.staticflickr.com/4116/5486788315_7ee91b1ebf_b.jpg "Creag nan Gabhar from the north")](https://www.flickr.com/photos/black_friction/5486788315/))
+[![Creag nan Gabhar from the north](https://live.staticflickr.com/4116/5486788315_7ee91b1ebf_b.jpg "Creag nan Gabhar from the north")](https://www.flickr.com/photos/black_friction/5486788315/)
 
 
 
@@ -371,19 +371,19 @@ It was a delightful time. The track was good and easy to follow. Hush had descen
 
 
 
-[![Loch Callater](https://live.staticflickr.com/5134/5486784365_1aef695449_b.jpg "Loch Callater")](https://www.flickr.com/photos/black_friction/5486784365/))
+[![Loch Callater](https://live.staticflickr.com/5134/5486784365_1aef695449_b.jpg "Loch Callater")](https://www.flickr.com/photos/black_friction/5486784365/)
 
 
 
-[![Glenshee under more snowclouds](https://live.staticflickr.com/5097/5486780209_1cbbef066b_b.jpg "Glenshee under more snowclouds")](https://www.flickr.com/photos/black_friction/5486780209/))
+[![Glenshee under more snowclouds](https://live.staticflickr.com/5097/5486780209_1cbbef066b_b.jpg "Glenshee under more snowclouds")](https://www.flickr.com/photos/black_friction/5486780209/)
 
 
 
-[![Clouds over the Cairngorms](https://live.staticflickr.com/4126/5487389524_eff792bd11_b.jpg "Clouds over the Cairngorms")](https://www.flickr.com/photos/black_friction/5487389524/))
+[![Clouds over the Cairngorms](https://live.staticflickr.com/4126/5487389524_eff792bd11_b.jpg "Clouds over the Cairngorms")](https://www.flickr.com/photos/black_friction/5487389524/)
 
 
 
-[![Morrone and Braemar](https://live.staticflickr.com/5098/5487393058_023e708e9a_b.jpg "Morrone and Braemar")](https://www.flickr.com/photos/black_friction/5487393058/))
+[![Morrone and Braemar](https://live.staticflickr.com/5098/5487393058_023e708e9a_b.jpg "Morrone and Braemar")](https://www.flickr.com/photos/black_friction/5487393058/)
 
 
 
@@ -391,15 +391,15 @@ Finally I reached the end of the long march of hills and here the track turns an
 
 
 
-[![Tendrils](https://live.staticflickr.com/5134/5487395564_eea4351ea6_b.jpg "Tendrils")](https://www.flickr.com/photos/black_friction/5487395564/))
+[![Tendrils](https://live.staticflickr.com/5134/5487395564_eea4351ea6_b.jpg "Tendrils")](https://www.flickr.com/photos/black_friction/5487395564/)
 
 
 
-[![Glen Callater](https://live.staticflickr.com/5211/5487401910_cb2a2a9a36_b.jpg "Glen Callater")](https://www.flickr.com/photos/black_friction/5487401910/))
+[![Glen Callater](https://live.staticflickr.com/5211/5487401910_cb2a2a9a36_b.jpg "Glen Callater")](https://www.flickr.com/photos/black_friction/5487401910/)
 
 
 
-[![Callater Water](https://live.staticflickr.com/4150/5486809755_2b79aa9a6f_b.jpg "Callater Water")](https://www.flickr.com/photos/black_friction/5486809755/))
+[![Callater Water](https://live.staticflickr.com/4150/5486809755_2b79aa9a6f_b.jpg "Callater Water")](https://www.flickr.com/photos/black_friction/5486809755/)
 
 
 
@@ -411,4 +411,4 @@ On the drive back to Aberdeen the skies got clearer and clearer until the stars 
 
 
 
-[![Orion](https://live.staticflickr.com/5093/5487407456_634ed6735c_b.jpg "Orion")](https://www.flickr.com/photos/black_friction/5487407456/))
+[![Orion](https://live.staticflickr.com/5093/5487407456_634ed6735c_b.jpg "Orion")](https://www.flickr.com/photos/black_friction/5487407456/)
