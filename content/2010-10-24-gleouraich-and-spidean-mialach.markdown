@@ -189,7 +189,7 @@ The re-ascent to the first prominence on the ridge was quite laborious, rising s
 
 
 
-[![](http://farm5.static.flickr.com/4029/5132888115_1060145500_b.jpg)](http://www.flickr.com/photos/53725815@N00/5132888115)
+[![Loch Quoich](http://farm5.static.flickr.com/4029/5132888115_1060145500_b.jpg "Loch Quoich")](http://www.flickr.com/photos/53725815@N00/5132888115)
 
 
 
