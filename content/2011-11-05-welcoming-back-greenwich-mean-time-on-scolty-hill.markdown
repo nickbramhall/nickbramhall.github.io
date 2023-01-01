@@ -1,7 +1,7 @@
 Title: Welcoming back Greenwich Mean Time on Scolty Hill
 Date: 2011-11-05 11:55:53
 Modified: 2011-11-05 11:55:53
-Category: Articles
+Category: The Mounth
 Tags: 
 Slug: welcoming-back-greenwich-mean-time-on-scolty-hill
 Author: Nick Bramhall
