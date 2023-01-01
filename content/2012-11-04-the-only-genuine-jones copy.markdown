@@ -9,7 +9,7 @@ Summary: A review of Alex Roddie’s historical fiction novel The Only Genuine J
 
 Alex Roddie’s [new novel](http://www.amazon.co.uk/dp/B009R2BBN2) is a whirlwind ride through an alternate vision of late-Victorian mountaineering. Sweeping across Europe from the sooty streets of Cambridge to the glistening great north faces of the Alps it is a tightly-plotted thriller revolving around a fierce climbing rivalry and the dawn of a new era as innovative technical equipment opens up the possibility of bold new routes.
 
-![The Eiger, Monch and Jungfrau](https://dl.dropbox.com/u/20505911/websites/tms/eiger.jpg)
+![The Eiger, Monch and Jungfrau](https://www.dropbox.com/s/n2ek9m7emi7gbkf/eiger.jpg?raw=1)
 
 <!--more-->
 

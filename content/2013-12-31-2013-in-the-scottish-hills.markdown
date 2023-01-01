@@ -42,7 +42,7 @@ Amongst the new Corbetts, Beinn na h-Umha in Ardgour was a highlight on one of t
 
 Over the course of 2013 I covered more than 1,000km and climbed over 36,000m. Below are my distance and ascent by month for 2013. Once again I entirely failed to do any sort of hillwalking in December.
 
-![Monthly Distance and Ascent](https://dl.dropboxusercontent.com/u/20505911/websites/tms/monthly-distance-ascent-2013.png)
+![Monthly Distance and Ascent](https://www.dropbox.com/s/zmqg5mrvf90ot1a/monthly-distance-ascent-2013.png?raw=1)
 
 ##Favourite Trips
 

@@ -51,7 +51,7 @@ And it was the worth all the repeat visits to finally get a view from Braeriach 
 
 Over the course of 2012 I covered almost 800km and climbed over 36,000m. Below are my distance and ascent by month for 2012.
 
-![Monthly Distance and Ascent](https://dl.dropbox.com/u/20505911/websites/tms/monthly-distance-ascent-2012.png)
+![Monthly Distance and Ascent](https://www.dropbox.com/s/ear2tt8wxsm9r73/monthly-distance-ascent-2012.png?raw=1)
 
 [![Snow storm](http://farm8.staticflickr.com/7157/6622436871_39a17e82d7_b.jpg)](http://flic.kr/p/b6cHL4 "Snow storm by Nick Bramhall, on Flickr")
 

@@ -14,7 +14,7 @@ Walking through the Fisherfield forest, often called the Great Wilderness, bring
 
 It is areas like this that draw me to the mountains of Scotland and after my time in Fisherfield a few weeks ago I was intrigued to know where the most remote hills lie. Places like Knoydart, Assynt and the Monadhliath come to mind, but what about specific hills? Luckily, a member of the Scottish Hills forum recently posted the results of an [interesting exercise](http://www.scottishhills.com/html/modules.php?name=Forums&file=viewtopic&p=203686#203686), adding a new twist to what we consider the most remote hills of Scotland. 
 
-![Map of the Fisherfield Wilderness](https://dl.dropbox.com/u/20505911/websites/tms/fisherfield-map.png)
+![Map of the Fisherfield Wilderness](https://www.dropbox.com/s/1a1d6b6mdrzfnfd/fisherfield-map.png?raw=1)
 
 Remoteness is typically determined by “as the crow flies” distances from things like roads. Doing this you can [determine that the remotest grid reference](http://www.telegraph.co.uk/travel/destinations/europe/uk/scotland/725593/Scotland-The-remotest-place-in-Britain.html) in the UK is a point around seven miles from the nearest piece of tarmac on the shoulder of Ruadh Stac Mor in Fisherfield at [NH02020 77000](http://www.streetmap.co.uk/map.srf?X=202020&Y=877000&A=Y&Z=120).
 
