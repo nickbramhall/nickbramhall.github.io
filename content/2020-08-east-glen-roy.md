@@ -24,7 +24,7 @@ Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/51
 
 In these strange Covid times seemingly the most important part of planning a hill walk is identifying a starting point where you won't be fighting for the last parking spot. Given that Glen Roy is typically used to access a handful of Corbetts, I decided it would be a good place to park up and then walk over to a couple of nearby Munros that were still on my target list, Beinn Teallach and Beinn a' Chaorainn, that are usually accessed from near Roughburn on the A85. 
 
-Back in October 2010 I did [the Creag Megaidh three via the standard route from Aberader on the shore of Loch Laggan](https://tms.nickbramhall.com/blog/2010/10/creag-meagaidh/), but I was keen to get back and figured a summit camp would extend the route nicely into a worthwhile overnight trip.
+Back in October 2010 I did [the Creag Megaidh three via the standard route from Aberader on the shore of Loch Laggan](/blog/2010/10/creag-meagaidh/), but I was keen to get back and figured a summit camp would extend the route nicely into a worthwhile overnight trip.
 
 Coming from this direction did mean some extra driving was required, but the opportunity to see Glen Roy and the famous "Parallel Roads" was enough to see me driving past Laggan and down to Roybridge where a single track road climbs up through wooded hills and then winds through this stunning, remote glen. 
 

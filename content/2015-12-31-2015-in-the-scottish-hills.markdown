@@ -117,7 +117,7 @@ May brought about more adventures with Leslie when we decided to explore a stret
 
 <a href="https://www.flickr.com/photos/black_friction/17411803846/in/album-72157652264999946/" title="Untitled"><img src="https://farm9.staticflickr.com/8692/17411803846_7a8a5f691f_b.jpg" width="1024" alt="Untitled"></a>
 
-I was keen to add some more new Munros to my tally but the spring weather failed to co-operate. In the end I managed with a day trip to Glen Lochay where lingering snow made the [round of Creag Mhor and Beinn Heasgarnich](http://tms.nickbramhall.com/blog/2015/05/creag-mhor/) quite spectacular under mostly sunny skies.
+I was keen to add some more new Munros to my tally but the spring weather failed to co-operate. In the end I managed with a day trip to Glen Lochay where lingering snow made the [round of Creag Mhor and Beinn Heasgarnich](/blog/2015/05/creag-mhor/) quite spectacular under mostly sunny skies.
 
 <a href="https://www.flickr.com/photos/black_friction/18347707753" title="Upper Glen Lochay and Ben Challum"><img src="https://farm4.staticflickr.com/3760/18347707753_bc55abd118_b.jpg" width="1024" alt="Upper Glen Lochay and Ben Challum"></a>
 
@@ -181,7 +181,7 @@ The unsettled weather continued into September but I managed to get a good weeke
 
 <a href="https://www.flickr.com/photos/black_friction/21516597890/in/album-72157658930755201/" title="The Allt Garbh path"><img src="https://farm6.staticflickr.com/5659/21516597890_9bffa9aa8f_b.jpg" width="1024" alt="The Allt Garbh path"></a>
 
-Mid-October brought unseasonably warm weather and I took the opportunity to revisit [Bynack More in the Cairngorms](http://tms.nickbramhall.com/blog/2015/10/bynack-more/) before following a new route down to the east end of Loch Avon which was as still as glass. I followed the Avon down to the refuge and then bagged a new Corbett, Creag Mhor, on my way back to the car beyond Ryvoan.
+Mid-October brought unseasonably warm weather and I took the opportunity to revisit [Bynack More in the Cairngorms](/blog/2015/10/bynack-more/) before following a new route down to the east end of Loch Avon which was as still as glass. I followed the Avon down to the refuge and then bagged a new Corbett, Creag Mhor, on my way back to the car beyond Ryvoan.
 
 <a href="https://www.flickr.com/photos/black_friction/22605331036/in/album-72157659722709595/" title="Loch Avon"><img src="https://farm6.staticflickr.com/5628/22605331036_b65b8b9d8d_b.jpg" width="1024" alt="Loch Avon"></a>
 

@@ -76,7 +76,7 @@ It was easy going, weaving over rocky outcrops and around a couple of pools of w
 
 <a  href="https://www.flickr.com/photos/black_friction/48134533047/in/album-72157709265661582/" title="Towards Loch Sunart"><img src="https://live.staticflickr.com/65535/48134533047_d22efe3e34_b.jpg" width="1024" alt="Towards Loch Sunart"></a>
 
-We could see far off into the Northwest Highlands and out beyond the dark outline of [Ben Resipol](https://tms.nickbramhall.com/blog/2013/11/ben-resipole/) could be glimpsed islands and the western sea.
+We could see far off into the Northwest Highlands and out beyond the dark outline of [Ben Resipol](/blog/2013/11/ben-resipole/) could be glimpsed islands and the western sea.
 
 <a  href="https://www.flickr.com/photos/black_friction/48134545647/in/album-72157709265661582/" title="Towards the Northwest Highlands"><img src="https://live.staticflickr.com/65535/48134545647_79c7522bb6_b.jpg" width="1024" alt="Towards the Northwest Highlands"></a>
 
