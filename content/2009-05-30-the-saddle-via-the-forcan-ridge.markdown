@@ -2,7 +2,6 @@ Title: The Saddle via the Forcan Ridge
 Date: 2009-05-30 22:24:31
 Modified: 2009-05-30 22:24:31
 Category: The Northwest Highlands
-
 Tags: munro, corbett
 Slug: the-saddle-via-the-forcan-ridge
 Author: Nick Bramhall
@@ -32,7 +31,7 @@ We kitted up and headed back west down the road until we came to the usual start
 
 
 
-[![IMG_1071.JPG](http://farm3.static.flickr.com/2462/3590070316_0765f2101a.jpg)](http://www.flickr.com/photos/53725815@N00/3590070316)
+[![IMG_1071.JPG](http://farm3.static.flickr.com/2462/3590070316_0765f2101a_b.jpg)](http://www.flickr.com/photos/53725815@N00/3590070316)
 
 
 
