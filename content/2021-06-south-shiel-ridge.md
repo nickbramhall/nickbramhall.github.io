@@ -10,6 +10,8 @@ Slug: the-south-shiel-ridge
 
 An overnight camping trip to the Northwest Highlands taking in all seven Munros of the South Shiel Ridge with a wild camp towards the western end and a return via the Quoich glens south of the ridge
 
+<!--more-->
+
 **Date: 18 June 2021  
 Distance: 46.11km  
 Ascent: 2413m  
