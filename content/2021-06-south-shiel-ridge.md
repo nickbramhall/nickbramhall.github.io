@@ -8,7 +8,7 @@ Slug: the-south-shiel-ridge
 
 <a href="https://www.flickr.com/photos/black_friction/51284223748/in/album-72157719438510561/" title="Sgurr an Lochain"><img src="https://live.staticflickr.com/65535/51284223748_c9c9fae42b_b.jpg" alt="Sgurr an Lochain"></a>
 
-An overnight camping trip to the Northwest Highlands taking in all seven Munros of the South Shiel Ridge with a wild camp towards the western end and a return via the Quoich glens south of the ridge
+_An overnight camping trip to the Northwest Highlands taking in all seven Munros of the South Shiel Ridge with a wild camp towards the western end and a return via the Quoich glens south of the ridge_
 
 <!--more-->
 
