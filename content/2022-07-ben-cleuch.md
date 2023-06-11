@@ -6,9 +6,9 @@ Tags: hillrun, ochils
 Author: Nick Bramhall
 Slug: ben-cleuch-evening-run
 
-_A late evening run around the route of the Maddy Moss Mash hillrun on a day of soaring temperatures_
-
 <a href="https://www.flickr.com/photos/black_friction/52207657968/in/album-72177720304755845/" title="Ben Cleuch from the east"><img src="https://live.staticflickr.com/65535/52207657968_5d3f319d9c_b.jpg" alt="Ben Cleuch from the east"></a>
+
+_A late evening run around the route of the Maddy Moss Mash hillrun on a day of soaring temperatures_
 
 <!--more-->
 

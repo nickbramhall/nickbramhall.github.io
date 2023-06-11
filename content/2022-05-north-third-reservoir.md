@@ -6,9 +6,9 @@ Tags: day trip, loop, Stirling, reservoir
 Author: Nick Bramhall
 Slug: north-third-reservoir-circuit
 
-_A short but pleasant circuit around the North Third Reservoir in the Touch Hills close to Stirling_
-
 <a href="https://www.flickr.com/photos/black_friction/52108713330/in/album-72177720299386090/" title="Above North Third Reservoir"><img src="https://live.staticflickr.com/65535/52108713330_f83fd3349c_b.jpg" alt="Above North Third Reservoir"></a>
+
+_A short but pleasant circuit around the North Third Reservoir in the Touch Hills close to Stirling_
 
 <!--more-->
 
