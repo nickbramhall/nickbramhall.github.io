@@ -6,16 +6,16 @@ Tags: munro, corbett, wildcamp 
 Author: Nick Bramhall  
 Slug: ben-vuirich-and-beinn-a-ghlo
 
-_An overnight backpacking trip in Highland Perthshire taking in Ben Vuirich and part of the Beinn a' Ghlo range before returning via the enigmatic Loch Loch_
-
 <a href="https://www.flickr.com/photos/black_friction/54232632812/in/album-72177720322838376" title="Beinn a&#x27; Ghlo from Ben Vuirich"><img src="https://live.staticflickr.com/65535/54232632812_e82ec2e1f8_b.jpg" width="100%" alt="Beinn a&#x27; Ghlo from Ben Vuirich"/></a>
 
-<!-- more -->
+_An overnight backpacking trip in Highland Perthshire taking in Ben Vuirich and part of the Beinn a' Ghlo range before returning via the enigmatic Loch Loch_
+
+<!--more-->
 
 **Date: 31 August 2024  
-Distance: 37.66km  
-Ascent: 1705m  
-Time: 25.9hrs  
+Distance: 37.7km  
+Ascent: 1,705m  
+Time: 26hrs  
 Hills: Ben Vuirich (Corbett), Carn nan Gabhar (Munro)   
 Weather: Clear skies and sunshine on day 1 albeit with a cool wind, before cloud and mist on day 2  
 Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/538)**
