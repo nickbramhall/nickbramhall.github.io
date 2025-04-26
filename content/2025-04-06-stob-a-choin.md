@@ -2,7 +2,7 @@ Title: Stob a' Choin
 Date: 2025-04-06 19:30  
 Modified: 2025-04-06 19:30  
 Category: The Southeast Highlands  
-Tags:  corbett, daywalk.    
+Tags: corbett, daywalk  
 Author: Nick Bramhall  
 Slug: stob-a-choin
 
@@ -10,7 +10,7 @@ Slug: stob-a-choin
 
 _A loop around the steep-sided Corbett of Stob a' Choin from Inverlochlarig with beautiful views on a clear April day_
 
-<!-- more -->
+<!--more-->
 
 **Date: 06 April 2025  
 Distance: 11.69km  
