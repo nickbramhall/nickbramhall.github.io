@@ -1,7 +1,7 @@
 Title: Stob a' Choin  
 Date: 2025-04-06 19:30  
 Modified: 2025-04-06 19:30  
-Category: The Southeast Highlands  
+Category: The West Highlands  
 Tags: corbett, daywalk  
 Author: Nick Bramhall  
 Slug: stob-a-choin
