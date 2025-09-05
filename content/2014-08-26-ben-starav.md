@@ -132,7 +132,7 @@ Although I started with my hood down the rain soon fizzled out and things improv
 
 <a href="https://www.flickr.com/photos/black_friction/14687404781" title="Ben Starav by Nick Bramhall, on Flickr"><img src="https://farm3.staticflickr.com/2938/14687404781_8297d90a25_b.jpg" width="1024" height="683" alt="Ben Starav"></a>
 
-The track climbed easily up to the bealach between the east top of Ben Starav and the ridge leading along to Glas Bheinn Mhor. With the prospects of a view from Ben Starav now looking much more likely I turned left and started to work my way up its eastern ridge. To the north now I had a view down to Glen Etive and across to the hills that border Glencoe. There were patches of sunlight appearing and the day looked promising once again.
+The track climbed easily up to the bealach between the east top of Ben Starav and the ridge leading along to Glas Bheinn Mhor. With the prospects of a view from Ben Starav now looking much more likely I turned left and started to work my way up its eastern ridge. To the north now I had a view down to Glen Etive and across to the hills that border Glen Coe. There were patches of sunlight appearing and the day looked promising once again.
 
 <a href="https://www.flickr.com/photos/black_friction/14690588705" title="Ben Starav by Nick Bramhall, on Flickr"><img src="https://farm3.staticflickr.com/2902/14690588705_cc0bfc048f_b.jpg" width="1024" height="576" alt="Ben Starav"></a>
 
@@ -172,7 +172,7 @@ From here it was an easy stroll under a brightening sky around the rim of the mo
 
 <a href="https://www.flickr.com/photos/black_friction/14687467751" title="End of Loch Etive by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5596/14687467751_9b518f5376_b.jpg" width="1024" height="683" alt="End of Loch Etive"></a>
 
-<a href="https://www.flickr.com/photos/black_friction/14690649295" title="Glencoe Hills from Ben Starav by Nick Bramhall, on Flickr"><img src="https://farm3.staticflickr.com/2911/14690649295_56c01586b5_b.jpg" width="1024" height="683" alt="Glencoe Hills from Ben Starav"></a>
+<a href="https://www.flickr.com/photos/black_friction/14690649295" title="Glen Coe Hills from Ben Starav by Nick Bramhall, on Flickr"><img src="https://farm3.staticflickr.com/2911/14690649295_56c01586b5_b.jpg" width="1024" height="683" alt="Glen Coe Hills from Ben Starav"></a>
 
 <a href="https://www.flickr.com/photos/black_friction/14504013258" title="East top from summit of Ben Starav by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3923/14504013258_587d4cb56f_b.jpg" width="1024" height="683" alt="East top from summit of Ben Starav"></a>
 
@@ -208,7 +208,7 @@ After a cuppa and then soup, a bit more relaxing and it was time for some dinner
 
 <a href="https://www.flickr.com/photos/black_friction/14667732256" title="Late sunshine over Mull by Nick Bramhall, on Flickr"><img src="https://farm3.staticflickr.com/2902/14667732256_377d438195_b.jpg" width="1024" height="683" alt="Late sunshine over Mull"></a>
 
-After dinner I decided to head back up to the summit and have a general wander about the mountain. I was half thinking I might head out to the southern tops as these looked to be interesting spurs with long ridge lines heading down towards Loch Etive. However, after looking at the sunlit Glencoe hills and clambering back up to the summit itself I spotted that a second tent had appeared on the hill. I thought it would be slightly rude not to say hello so popped over to where they were. 
+After dinner I decided to head back up to the summit and have a general wander about the mountain. I was half thinking I might head out to the southern tops as these looked to be interesting spurs with long ridge lines heading down towards Loch Etive. However, after looking at the sunlit Glen Coe hills and clambering back up to the summit itself I spotted that a second tent had appeared on the hill. I thought it would be slightly rude not to say hello so popped over to where they were. 
 
 They were a pair from Edinburgh who’d camped close to the summit of Stob Ghabhar the previous night and made their way along the range of hills to Ben Starav during the day. They were having some interesting problems with their liquid fuelled stove which caused some scary moments considering how close the tent fabric was to the naked flames. Eventually they got it going and started to cook up a tasty looking pasta dinner with lots of fresh ingredients. We chatted away about the pleasures of summit camping and then, as they were about to have dinner, agreed to meet up on the summit to watch the sunset, still a couple of hours away.
 
@@ -279,7 +279,7 @@ After checking the time of sunrise the previous evening I’d set my alarm for a
 
 <a href="https://www.flickr.com/photos/black_friction/14582998789" title="Sunrise from Ben Starav by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3893/14582998789_81c820b56b_b.jpg" width="1024" height="683" alt="Sunrise from Ben Starav"></a>
 
-<a href="https://www.flickr.com/photos/black_friction/14374727207" title="Sunrise over Glen Etive and the Glencoe mountains by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3846/14374727207_b2a51de5ed_b.jpg" width="1024" height="683" alt="Sunrise over Glen Etive and the Glencoe mountains"></a>
+<a href="https://www.flickr.com/photos/black_friction/14374727207" title="Sunrise over Glen Etive and the Glen Coe mountains by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3846/14374727207_b2a51de5ed_b.jpg" width="1024" height="683" alt="Sunrise over Glen Etive and the Glen Coe mountains"></a>
 
 <a href="https://www.flickr.com/photos/black_friction/14383574238" title="Ben Starav at dawn by Nick Bramhall, on Flickr"><img src="https://farm3.staticflickr.com/2902/14383574238_d1a9472116_b.jpg" width="1024" height="683" alt="Ben Starav at dawn"></a>
 
@@ -303,7 +303,7 @@ After enjoying the show for a good twenty or so minutes the best part was over a
 
 <a href="https://www.flickr.com/photos/black_friction/14746724276" title="West from Ben Starav by Nick Bramhall, on Flickr"><img src="https://farm3.staticflickr.com/2913/14746724276_2214e0fa86_b.jpg" width="1024" height="684" alt="West from Ben Starav"></a>
 
-<a href="https://www.flickr.com/photos/black_friction/14766587801" title="Glencoe and Glen Etive hills by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5564/14766587801_da8280228b_b.jpg" width="1024" height="683" alt="Glencoe and Glen Etive hills"></a>
+<a href="https://www.flickr.com/photos/black_friction/14766587801" title="Glen Coe and Glen Etive hills by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5564/14766587801_da8280228b_b.jpg" width="1024" height="683" alt="Glen Coe and Glen Etive hills"></a>
 
 I eventually woke up around 7:30 as the heat in the tent began to build. It felt good to get up and get a coffee on, munching away on a breakfast bar as steam rose in great plumes from the stove.
 
@@ -323,7 +323,7 @@ I set off to the start of the east ridge, retreading the route I had taken to ge
 
 <a href="https://www.flickr.com/photos/black_friction/14583356147" title="Ben Cruachan massif from Ben Starav by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3847/14583356147_8abdd7cc8c_b.jpg" width="1024" height="683" alt="Ben Cruachan massif from Ben Starav"></a>
 
-<a href="https://www.flickr.com/photos/black_friction/14583195868" title="Glencoe hills across Glen Etive by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3856/14583195868_6f353afcc6_b.jpg" width="1024" height="683" alt="Glencoe hills across Glen Etive"></a>
+<a href="https://www.flickr.com/photos/black_friction/14583195868" title="Glen Coe hills across Glen Etive by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3856/14583195868_6f353afcc6_b.jpg" width="1024" height="683" alt="Glen Coe hills across Glen Etive"></a>
 
 <a href="https://www.flickr.com/photos/black_friction/14583134830" title="Beinn nan Aighenan by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5584/14583134830_72d440dce0_b.jpg" width="1024" height="683" alt="Beinn nan Aighenan"></a>
 
@@ -381,13 +381,13 @@ As I reached the summit cairn the grey cloud started to break and once again I w
 
 <a href="https://www.flickr.com/photos/black_friction/14771055722" title="Summit cairn of Glas Bheinn Mhor by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3868/14771055722_f1c17850c4_b.jpg" width="1024" height="683" alt="Summit cairn of Glas Bheinn Mhor"></a>
 
-<a href="https://www.flickr.com/photos/black_friction/14748389806" title="Glencoe mountains from Glas Bheinn Mhor by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5588/14748389806_fa78712ec5_b.jpg" width="1024" height="575" alt="Glencoe mountains from Glas Bheinn Mhor"></a>
+<a href="https://www.flickr.com/photos/black_friction/14748389806" title="Glen Coe mountains from Glas Bheinn Mhor by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5588/14748389806_fa78712ec5_b.jpg" width="1024" height="575" alt="Glen Coe mountains from Glas Bheinn Mhor"></a>
 
 <a href="https://www.flickr.com/photos/black_friction/14584706030" title="Ben Starav from Glas Bheinn Mhor by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5555/14584706030_f9d9197ef5_b.jpg" width="1024" height="683" alt="Ben Starav from Glas Bheinn Mhor"></a>
 
 <a href="https://www.flickr.com/photos/black_friction/14791274623" title="Loch Tulla and Loch Dochard by Nick Bramhall, on Flickr"><img src="https://farm3.staticflickr.com/2928/14791274623_e5dec1a6d1_b.jpg" width="1024" height="683" alt="Loch Tulla and Loch Dochard"></a>
 
-There were now clear views north beyond Glencoe to the Mamores and Ben Nevis, a seemingly endless stretch of mountains fading out into darker skies to the northwest.
+There were now clear views north beyond Glen Coe to the Mamores and Ben Nevis, a seemingly endless stretch of mountains fading out into darker skies to the northwest.
 
 <a href="https://www.flickr.com/photos/black_friction/14768244721" title="The Mamores and Nevis from Glas Bheinn Mhor by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3909/14768244721_ff1e94847e_b.jpg" width="1024" height="576" alt="The Mamores and Nevis from Glas Bheinn Mhor"></a>
 
@@ -437,7 +437,7 @@ Emerging on the summit plateau which encircles the grand northeastern coire I de
 
 <a href="https://www.flickr.com/photos/black_friction/14799461803" title="Minor western top of Stob Coir&#x27;an Albannaich by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5579/14799461803_8770cdb45d_b.jpg" width="1024" height="683" alt="Minor western top of Stob Coir&#x27;an Albannaich"></a>
 
-<a href="https://www.flickr.com/photos/black_friction/14756606846" title="Glencoe, Mamores and Nevis by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5591/14756606846_9732334847_b.jpg" width="1024" height="683" alt="Glencoe, Mamores and Nevis"></a>
+<a href="https://www.flickr.com/photos/black_friction/14756606846" title="Glen Coe, Mamores and Nevis by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5591/14756606846_9732334847_b.jpg" width="1024" height="683" alt="Glen Coe, Mamores and Nevis"></a>
 
 After this brief diversion I made my way back along the summit ridge to the main summit passing some equisitie displays of high mountain wildflowers in full blooom.
 
@@ -461,7 +461,7 @@ I had a snack and, looking to the east, was glad to see that Stob Ghabhar was no
 
 <a href="https://www.flickr.com/photos/black_friction/14779670625" title="Meall nan Eun from Stob Coir&#x27;an Albannaich by Nick Bramhall, on Flickr"><img src="https://farm3.staticflickr.com/2933/14779670625_c73408a622_b.jpg" width="1024" height="683" alt="Meall nan Eun from Stob Coir&#x27;an Albannaich"></a>
 
-<a href="https://www.flickr.com/photos/black_friction/14776521191" title="Glencoe and Etive Hills by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5554/14776521191_3a92452e8d_b.jpg" width="1024" height="683" alt="Glencoe and Etive Hills"></a>
+<a href="https://www.flickr.com/photos/black_friction/14776521191" title="Glen Coe and Etive Hills by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5554/14776521191_3a92452e8d_b.jpg" width="1024" height="683" alt="Glen Coe and Etive Hills"></a>
 
 The descent from Albannaich was initially steep and narrow down a well defined ridge. Eventually though the slope eased and the ridge broadened. The cairn marking the point of descent is well documented online and in guides and I found it without problem, following a faint track down a steep sloping gully towards the bealach below. I lost the track lower down but emerged unscathed. 
 
@@ -477,7 +477,7 @@ The jumbled bealach offered some fine views up the dramatic, stony northeast sid
 
 <a href="https://www.flickr.com/photos/black_friction/14593110048" title="Northern side of Stob Coir&#x27;an Albannaich by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5567/14593110048_ac47395118_b.jpg" width="1024" height="683" alt="Northern side of Stob Coir&#x27;an Albannaich"></a>
 
-From the rocky bealach a faint trail led me up the gentle slopes of Meall Tarsuinn where I met the first other person of the day, coming in the opposite direction. They were on a decent hike, heading for Ben Starav and then on to Cruachan before catching the train back to Glasgow. The summit of Meall Tarsuinn came quickly and there were splendid views back to the twin-summited Stob Coir' an Albannaich with the sun coming back out over the Glencoe hills.
+From the rocky bealach a faint trail led me up the gentle slopes of Meall Tarsuinn where I met the first other person of the day, coming in the opposite direction. They were on a decent hike, heading for Ben Starav and then on to Cruachan before catching the train back to Glasgow. The summit of Meall Tarsuinn came quickly and there were splendid views back to the twin-summited Stob Coir' an Albannaich with the sun coming back out over the Glen Coe hills.
 
 <a href="https://www.flickr.com/photos/black_friction/14777407514" title="Meall Tarsuinn by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3902/14777407514_9b9d404923_b.jpg" width="1024" height="683" alt="Meall Tarsuinn"></a>
 
@@ -527,7 +527,7 @@ It was a bit of a calf-screaming ascent, but not really any worse than that pull
 
 <a href="https://www.flickr.com/photos/black_friction/14799733173" title="Meall nan Eun by Nick Bramhall, on Flickr"><img src="https://farm3.staticflickr.com/2927/14799733173_25a498418d_b.jpg" width="1024" height="683" alt="Meall nan Eun"></a>
 
-I was now up on the final ridge that would lead me towards Stob Ghabhar. A small cairn marked the summit of Meall Odhar which enjoyed fine views east towards the Black Mount and into Glencoe.
+I was now up on the final ridge that would lead me towards Stob Ghabhar. A small cairn marked the summit of Meall Odhar which enjoyed fine views east towards the Black Mount and into Glen Coe.
 
 <a href="https://www.flickr.com/photos/black_friction/14593232668" title="Summit of Meall Odhar by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3882/14593232668_967fb46d41_b.jpg" width="1024" height="683" alt="Summit of Meall Odhar"></a>
 
@@ -547,9 +547,9 @@ I covered ground quickly and was soon looking past the craggy eastern end of Mea
 
 <a href="https://www.flickr.com/photos/black_friction/14593419937" title="The long ridge to Stob Ghabhar by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3835/14593419937_28906df1b7_b.jpg" width="1024" height="683" alt="The long ridge to Stob Ghabhar"></a>
 
-Ahead of me the ridge stretched away, rising to the first minor top of Stob a'Bhruaich Leith which had grand views across to Glencoe and back to Meall nan Eun and Stob Coir’ an Albainnaich beyond.
+Ahead of me the ridge stretched away, rising to the first minor top of Stob a'Bhruaich Leith which had grand views across to Glen Coe and back to Meall nan Eun and Stob Coir’ an Albainnaich beyond.
 
-<a href="https://www.flickr.com/photos/black_friction/14799789583" title="Glen Etive and Glencoe Hills by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3873/14799789583_7317065a82_b.jpg" width="1024" height="576" alt="Glen Etive and Glencoe Hills"></a>
+<a href="https://www.flickr.com/photos/black_friction/14799789583" title="Glen Etive and Glen Coe Hills by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3873/14799789583_7317065a82_b.jpg" width="1024" height="576" alt="Glen Etive and Glen Coe Hills"></a>
 
 <a href="https://www.flickr.com/photos/black_friction/14593436007" title="Meall nan Eun by Nick Bramhall, on Flickr"><img src="https://farm3.staticflickr.com/2929/14593436007_e3bdea99df_b.jpg" width="1024" height="576" alt="Meall nan Eun"></a>
 
@@ -581,7 +581,7 @@ The views from here were spectacular with the drama of Coire Lochain below my fe
 
 <a href="https://www.flickr.com/photos/black_friction/14593385198" title="Rannoch Moor from Stob Ghabhar by Nick Bramhall, on Flickr"><img src="https://farm6.staticflickr.com/5552/14593385198_072217a7f2_b.jpg" width="1024" height="683" alt="Rannoch Moor from Stob Ghabhar"></a>
 
-<a href="https://www.flickr.com/photos/black_friction/14780029415" title="Glencoe and Etive Hills from Stob Ghabhar by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3867/14780029415_c776ccb6da_b.jpg" width="1024" height="576" alt="Glencoe and Etive Hills from Stob Ghabhar"></a>
+<a href="https://www.flickr.com/photos/black_friction/14780029415" title="Glen Coe and Etive Hills from Stob Ghabhar by Nick Bramhall, on Flickr"><img src="https://farm4.staticflickr.com/3867/14780029415_c776ccb6da_b.jpg" width="1024" height="576" alt="Glen Coe and Etive Hills from Stob Ghabhar"></a>
 
 <a href="https://www.flickr.com/photos/black_friction/14757033696" title="Summit of Stob Ghabhar by Nick Bramhall, on Flickr"><img src="https://farm3.staticflickr.com/2940/14757033696_f77634b19a_b.jpg" width="1024" height="683" alt="Summit of Stob Ghabhar"></a>
 
