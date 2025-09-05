@@ -12,12 +12,12 @@ _A walk down the length of Glen Lethnot in the Angus Glens to Muckle Cairn and a
 
 <!--more-->
 
-**Date: 05 July 2025
-Distance: 26.59km
-Ascent: 905m
-Time: 8.2hrs
-Hills: Ben Tirran (Corbett (896m))
-Weather: Bright and blustery
+**Date: 05 July 2025  
+Distance: 26.59km  
+Ascent: 905m  
+Time: 8.2hrs  
+Hills: Ben Tirran (Corbett (896m))  
+Weather: Bright and blustery  
 Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/545)**
 
 Last year we intended to walk the length of Glen Lethnot and explore the wreck site of a Wellington bomber that crashed close to the summit of Muckle Cairn in 1942. Unfortunately my drive down the glen that morning was brought to a premature halt by a road closed sign. It turned out that a bridge had been washed out the previous winter and the repairs were taking their time. In the meantime a temporary bridge had been installed but its use was restricted to residents of the glen and estate vehicles. We parked up at the road closure and did an alternative walk around the hills on the south side of Glen Lethnot[^1].
