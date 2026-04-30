@@ -10,7 +10,7 @@ Slug: beinn-stacath-and-benvane
 
 _A day walk in the Trossachs taking in the Corbetts of Beinn Stacath and Benvane from Ballimore farm in Glen Buckie_
 
-<!-- more -->
+<!--more-->
 
 **Date: 24 April 2026  
 Distance: 21.98km  
