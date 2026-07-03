@@ -12,15 +12,15 @@ _An overnight wild camp in the hills of Perthshire taking in four Corbetts, a Fi
 
 <!--more-->
 
-**Date: 20 June 2026
-Distance: 43.22km
-Ascent: 2,571m
-Time: 30.4hrs
-Hills: Meall na Leitreach (Corbett, 777.1m), Creag a' Mhadaidh (Graham, 612m), Beinn Mholach (Corbett, 841.7m), Stob an Aonaich Mhoir (Corbett, 855m), Sgairneach Mhor (Munro, 991m), The Sow of Atholl [Meall an Dobharchain] (Corbett, 803m)
-Weather: Initially cool and cloudy with a cold wind turning to sunshine and hot conditions
+**Date: 20 June 2026  
+Distance: 43.22km  
+Ascent: 2,571m  
+Time: 30.4hrs  
+Hills: Meall na Leitreach (Corbett, 777.1m), Creag a' Mhadaidh (Graham, 612m), Beinn Mholach (Corbett, 841.7m), Stob an Aonaich Mhoir (Corbett, 855m), Sgairneach Mhor (Munro, 991m), The Sow of Atholl [Meall an Dobharchain] (Corbett, 803m)  
+Weather: Initially cool and cloudy with a cold wind turning to sunshine and hot conditions  
 Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/552)**
 
-It's been a minute since my last wild camp and after a fairly dismal run of weather through May and June I was determined to try and get out with the tent for a night in the hills over the solstice weekend. During the week the weather forecast had been changing day-to-day but it seemed like east and central might be best. The only potential issue was windy conditions lingering into the weekend. Originally I'd planned a two night walk across the western Cairngorms but Friday's weather was (accurately it turned out) for a total washout, so I abandoned this in favour of a single night taking in a cocktail of hills around Loch Garry and Loch Ericht to the west of the A9. On the map this is marked as the Talla Bheith Forest, though of course this is a forest of deer rather than one of trees.
+It's [been a minute](/blog/2024/08/ben-vuirich-and-beinn-a-ghlo/) since my last wild camp and after a fairly dismal run of weather through May and June I was determined to try and get out with the tent for a night in the hills over the solstice weekend. During the week the weather forecast had been changing day-to-day but it seemed like east and central might be best. The only potential issue was windy conditions lingering into the weekend. Originally I'd planned a two night walk across the western Cairngorms but Friday's weather was (accurately it turned out) for a total washout, so I abandoned this in favour of a single night taking in a cocktail of hills around Loch Garry and Loch Ericht to the west of the A9. On the map this is marked as the Talla Bheith Forest, though of course this is a forest of deer rather than one of trees.
 
 <figure><a href="https://www.flickr.com/photos/black_friction/55360162778/in/album-72177720334406395/" title="Dalnaspidal Level Crossing"><img src="https://live.staticflickr.com/65535/55360162778_1848da0b6a_h.jpg" width="100%" alt="Dalnaspidal Level Crossing"/></a><figcaption></figcaption></figure>
 
@@ -274,8 +274,8 @@ Back at the main river crossing there were people swimming in the channel and mo
 
 <figure><a href="https://www.flickr.com/photos/black_friction/55360034591/in/album-72177720334406395/" title="Sow of Atholl from Dalnaspidal"><img src="https://live.staticflickr.com/65535/55360034591_cb9e3d2df6_h.jpg" width="100%" alt="Sow of Atholl from Dalnaspidal"/></a><figcaption></figcaption></figure>
 
-For late afternoon on a Sunday it wasn't a bad drive home back down the A9 and it was nice to sit out in the garden with a beer and enjoy the hot sunshine that had finally established itself
+For late afternoon on a Sunday it wasn't a bad drive home back down the A9 and it was nice to sit out in the garden with a beer and enjoy the hot sunshine that had finally established itself.
 
----
+### Footnotes
 
 [^1]: I haven't yet added Points of Interest for the Fionas to Memory-Map so it often comes as a surpise to find there is a nearby Fiona that can be added to a route relatively easily↩︎
