@@ -17,7 +17,7 @@ Distance: 32.71km
 Ascent: 1,160m  
 Hills: Sgor Mor [Corbett]    
 Weather: High winds, cloud and sunny showers       
-Route: [Click to view on Social Hiking](http://www.shareyouradventure.com/map/14222/nickbramhll/The-DeeFeshieGeldie-Loop)**
+Route: [Click to view on OS Map](https://invertedworld.co.uk/hills/trip/554)**
 
 _Traffic._ It's Friday afternoon, just before five, and I'm in a line of cars and trucks and motorcycles, engines thrumming amidst a pall of fumes and dust as we crawl ever closer to the roundabout at the Bridge of Dee. I look around and wonder: how many of these people are here every week, every day, sitting in the same line? Are they going home, to the gym, to visit friends and family? How many are escaping the city and its nightmare of gridlock?
 

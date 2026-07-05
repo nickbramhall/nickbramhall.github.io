@@ -6,9 +6,9 @@ Tags: munro, corbett, graham, wildcamp, perthshire
 Author: Nick Bramhall
 Slug: talla-bheith-forest-hills
 
-_An overnight wild camp in the hills of Perthshire taking in four Corbetts, a Fiona and a Munro with a high camp above Loch Ericht_
-
 <figure><a href="https://www.flickr.com/photos/black_friction/55359102412/in/album-72177720334406395/" title="The Allt Dubhaig"><img src="https://live.staticflickr.com/65535/55359102412_200674059c_h.jpg" width="100%" alt="The Allt Dubhaig"/></a><figcaption></figcaption></figure>
+
+_An overnight wild camp in the hills of Perthshire taking in four Corbetts, a Fiona and a Munro with a high camp above Loch Ericht_
 
 <!--more-->
 
@@ -20,7 +20,9 @@ Hills: Meall na Leitreach (Corbett, 777.1m), Creag a' Mhadaidh (Graham, 612m), B
 Weather: Initially cool and cloudy with a cold wind turning to sunshine and hot conditions  
 Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/552)**
 
-It's [been a minute](/blog/2024/08/ben-vuirich-and-beinn-a-ghlo/) since my last wild camp and after a fairly dismal run of weather through May and June I was determined to try and get out with the tent for a night in the hills over the solstice weekend. During the week the weather forecast had been changing day-to-day but it seemed like east and central might be best. The only potential issue was windy conditions lingering into the weekend. Originally I'd planned a two night walk across the western Cairngorms but Friday's weather was (accurately it turned out) for a total washout, so I abandoned this in favour of a single night taking in a cocktail of hills around Loch Garry and Loch Ericht to the west of the A9. On the map this is marked as the Talla Bheith Forest, though of course this is a forest of deer rather than one of trees.
+It's [been a minute](/blog/2024/08/ben-vuirich-and-beinn-a-ghlo/) since my last wild camp and after a fairly dismal run of weather through May and June I was determined to try and get out with the tent for a night in the hills over the solstice weekend. During the week the weather forecast had been changing day-to-day but it seemed like east and central might be best. The only potential issue was windy conditions lingering into the weekend. 
+
+Originally I'd planned a two night walk across the western Cairngorms but Friday's weather was (accurately it turned out) for a total washout, so I abandoned this in favour of a single night taking in a cocktail of hills around Loch Garry and Loch Ericht to the west of the A9 near Dalnaspidal. On the map this is marked as the Talla Bheith Forest, though of course this is a forest of deer rather than one of trees.
 
 <figure><a href="https://www.flickr.com/photos/black_friction/55360162778/in/album-72177720334406395/" title="Dalnaspidal Level Crossing"><img src="https://live.staticflickr.com/65535/55360162778_1848da0b6a_h.jpg" width="100%" alt="Dalnaspidal Level Crossing"/></a><figcaption></figcaption></figure>
 
