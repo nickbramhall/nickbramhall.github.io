@@ -18,7 +18,7 @@ Ascent: 2,571m
 Time: 30.4hrs  
 Hills: Meall na Leitreach (Corbett, 777.1m), Creag a' Mhadaidh (Graham, 612m), Beinn Mholach (Corbett, 841.7m), Stob an Aonaich Mhoir (Corbett, 855m), Sgairneach Mhor (Munro, 991m), The Sow of Atholl [Meall an Dobharchain] (Corbett, 803m)  
 Weather: Initially cool and cloudy with a cold wind turning to sunshine and hot conditions  
-Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/552)**
+Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/556)**
 
 It's [been a minute](/blog/2024/08/ben-vuirich-and-beinn-a-ghlo/) since my last wild camp and after a fairly dismal run of weather through May and June I was determined to try and get out with the tent for a night in the hills over the solstice weekend. During the week the weather forecast had been changing day-to-day but it seemed like east and central might be best. The only potential issue was windy conditions lingering into the weekend. 
 
