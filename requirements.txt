@@ -1,2 +1,2 @@
-pelican[markdown]==3.7.1
-beautifulsoup4
+pelican[markdown]==4.12.0
+minchin.pelican.plugins.summary

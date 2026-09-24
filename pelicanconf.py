@@ -73,8 +73,8 @@ AUTHORS_SAVE_AS = ''
 
 # Plugins
 
-PLUGIN_PATHS = ['plugins/pelican-plugins']
-PLUGINS = ['summary', 'pelican-page-hierarchy']
+# PLUGIN_PATHS = ['plugins/pelican-plugins']
+PLUGINS = ['minchin.pelican.plugins.summary']
 
 SUMMARY_END_MARKER = '<!--more-->'
 
