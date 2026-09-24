@@ -32,7 +32,7 @@ jobs:
       - name: Generate Pelican
         run: pelican content -o output -s publishconf.py -e SITEURL='"${{ steps.pages.outputs.base_url }}"'
       - name: Upload artifact
-        uses: actions/upload-pages-artifact@v3
+        uses: actions/upload-pages-artifact@v5
         with:
           path: output/
 
