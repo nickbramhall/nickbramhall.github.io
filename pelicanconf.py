@@ -16,7 +16,8 @@ DEFAULT_DATE_FORMAT = '%d %B %Y'
 
 DEFAULT_LANG = 'en'
 
-THEME = '/home/nick/apps/tms/themes/octopress'
+# THEME = '/home/nick/apps/tms/themes/octopress'
+THEME = 'themes/octopress'
 
 # Feed generation is usually not desired when developing
 FEED_ALL_ATOM = None
