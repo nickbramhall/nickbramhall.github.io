@@ -28,7 +28,6 @@ jobs:
         id: pages
         uses: actions/configure-pages@v6
       - run: pip install -r requirements.txt
-      - run: cargo install stork-search --locked
       - name: Generate Pelican
         run: pelican content -o output -s publishconf.py -e SITEURL='"${{ steps.pages.outputs.base_url }}"'
       - name: Upload artifact

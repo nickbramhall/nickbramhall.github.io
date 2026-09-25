@@ -20,7 +20,7 @@ Hills: Beinn Liath Mhor (Munro (926m))
 Weather: Low cloud and mist with increasing rain  
 Route: [View on OS Maps](https://www.invertedworld.co.uk/hillwalking/hillwalk/557)**
 
-Back in early 2010 I did a crazy winter's hillwalking day, driving across from Aberdeen to Strath Carron on the west coast, [climbing a Munro](/hills/trip/223), and then driving back the same day. Door-to-door was probably somewhere in the region of 12 or 13 hours. Today's Munro was the same one, but the before and after was somewhat different as we were staying in Achnashellach, on the access road to the station up which I would have walked 16 years ago...
+Back in early 2010 I did a crazy winter's hillwalking day, driving across from Aberdeen to Strath Carron on the west coast, [climbing a Munro](https://www.invertedworld.co.uk/hillwalking/hillwalk/223), and then driving back the same day. Door-to-door was probably somewhere in the region of 12 or 13 hours. Today's Munro was the same one, but the before and after was somewhat different as we were staying in Achnashellach, on the access road to the station up which I would have walked 16 years ago...
 
 The weather for the whole week was fairly dismal but Wednesday had forecasted a slight improvement through the early part of the day, with more rain blowing in by mid-afternoon. I hoped to take advantage of this window so headed off around 9am with scraps of blue sky appearing overhead and the lower hills clear for the first time in a couple of days.
 
