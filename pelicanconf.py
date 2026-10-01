@@ -98,5 +98,6 @@ SITEMAP = {
         "^/noindex/",  # starts with "/noindex/"
         "/tag/",       # contains "/tag/"
         "\.json$",     # ends with ".json"
+        "/author/",    # excludes the author pages
     ]
 }
