@@ -74,7 +74,7 @@ AUTHORS_SAVE_AS = ''
 # Plugins
 
 PLUGIN_PATHS = ['plugins/pelican-plugins']
-PLUGINS = ['minchin.pelican.plugins.summary', 'pelican-page-hierarchy']
+PLUGINS = ['minchin.pelican.plugins.summary', 'pelican-page-hierarchy', 'sitemap']
 
 SUMMARY_END_MARKER = '<!--more-->'
 
@@ -89,4 +89,14 @@ EXTRA_PATH_METADATA = {
     'extra/CNAME': {'path': 'CNAME'},
     #'extra/LICENSE': {'path': 'LICENSE'},
     'extra/README': {'path': 'README'},
+}
+
+# Sitemap Settings
+
+SITEMAP = {
+    "exclude": [
+        "^/noindex/",  # starts with "/noindex/"
+        "/tag/",       # contains "/tag/"
+        "\.json$",     # ends with ".json"
+    ]
 }
