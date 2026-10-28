@@ -61,7 +61,6 @@ MENUITEMS_MIDDLE = (('Archives', '/archives.html'),)
 
 FEED_FEEDBURNER = 'co/syeE'
 
-
 ARTICLE_URL = 'blog/{date:%Y}/{date:%m}/{slug}/'
 ARTICLE_SAVE_AS = 'blog/{date:%Y}/{date:%m}/{slug}/index.html'
 PAGE_URL = '{slug}/'
